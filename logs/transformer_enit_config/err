@@ -1,0 +1,104 @@
+2025-05-08 16:09:59,268 - INFO - root - Hello! This is Joey-NMT (version 2.2.0).
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -                           cfg.name : transformer_enit_config
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -                cfg.joeynmt_version : 2.0.0
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -                     cfg.data.train : data/train.en_it.en
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -                       cfg.data.dev : data/dev.en_it.en
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -                      cfg.data.test : data/test.en_it.en
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -              cfg.data.dataset_type : plain
+2025-05-08 16:09:59,268 - INFO - joeynmt.helpers -                  cfg.data.src.lang : en
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -                 cfg.data.src.level : word
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.data.src.lowercase : False
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.data.src.max_sent_length : 100
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.data.src.voc_limit : 100000
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -        cfg.data.src.tokenizer_type : sentencepiece
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.src.tokenizer_cfg.model_file : test/data/iwslt14/sp.model
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.src.tokenizer_cfg.model_type : unigram
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.src.tokenizer_cfg.character_coverage : 1.0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -   cfg.data.src.tokenizer_cfg.alpha : 0.1
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.src.tokenizer_cfg.pretokenizer : moses
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -                  cfg.data.trg.lang : it
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -                 cfg.data.trg.level : word
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.data.trg.lowercase : False
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.data.trg.max_sent_length : 100
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.data.trg.voc_limit : 100000
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -        cfg.data.trg.tokenizer_type : sentencepiece
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.trg.tokenizer_cfg.model_file : test/data/iwslt14/sp.model
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.trg.tokenizer_cfg.model_type : unigram
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.trg.tokenizer_cfg.character_coverage : 1.0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -   cfg.data.trg.tokenizer_cfg.alpha : 0.1
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.data.trg.tokenizer_cfg.pretokenizer : moses
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -              cfg.testing.beam_size : 3
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -                  cfg.testing.alpha : 1.0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -           cfg.training.random_seed : 42
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.training.optimizer : adam
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -         cfg.training.normalization : tokens
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -         cfg.training.learning_rate : 0.0003
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -            cfg.training.batch_size : 2048
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -            cfg.training.batch_type : token
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.training.eval_batch_size : 1024
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.training.eval_batch_type : token
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -            cfg.training.scheduling : plateau
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -              cfg.training.patience : 8
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.training.weight_decay : 0.0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.training.decrease_factor : 0.7
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.training.early_stopping_metric : ppl
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -                cfg.training.epochs : 10
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.training.validation_freq : 500
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.training.logging_freq : 100
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -           cfg.training.eval_metric : bleu
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.training.model_dir : models/transformer_enit
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.training.overwrite : False
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -               cfg.training.shuffle : True
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -              cfg.training.use_cuda : False
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -     cfg.training.max_output_length : 100
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -     cfg.training.print_valid_sents : [0, 1, 2, 3, 4]
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.training.label_smoothing : 0.3
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -              cfg.model.initializer : xavier_uniform
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -         cfg.model.bias_initializer : zeros
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -                cfg.model.init_gain : 1.0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -        cfg.model.embed_initializer : xavier_uniform
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.model.embed_init_gain : 1.0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.model.tied_embeddings : True
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.model.tied_softmax : True
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.model.encoder.type : transformer
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.model.encoder.num_layers : 4
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -        cfg.model.encoder.num_heads : 2
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.model.encoder.embeddings.embedding_dim : 256
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.model.encoder.embeddings.scale : True
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.model.encoder.embeddings.dropout : 0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -      cfg.model.encoder.hidden_size : 256
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.model.encoder.ff_size : 512
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.model.encoder.dropout : 0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -             cfg.model.decoder.type : transformer
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -       cfg.model.decoder.num_layers : 1
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -        cfg.model.decoder.num_heads : 2
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.model.decoder.embeddings.embedding_dim : 256
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.model.decoder.embeddings.scale : True
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers - cfg.model.decoder.embeddings.dropout : 0
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -      cfg.model.decoder.hidden_size : 256
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.model.decoder.ff_size : 512
+2025-05-08 16:09:59,271 - INFO - joeynmt.helpers -          cfg.model.decoder.dropout : 0
+2025-05-08 16:09:59,277 - INFO - joeynmt.data - Building tokenizer...
+2025-05-08 16:09:59,602 - INFO - joeynmt.tokenizers - en tokenizer: BasicTokenizer(level=word, lowercase=False, normalize=False, filter_by_length=(-1, -1), pretokenizer=moses)
+2025-05-08 16:09:59,602 - INFO - joeynmt.tokenizers - it tokenizer: BasicTokenizer(level=word, lowercase=False, normalize=False, filter_by_length=(-1, -1), pretokenizer=moses)
+2025-05-08 16:09:59,602 - INFO - joeynmt.data - Loading train set...
+Traceback (most recent call last):
+  File "C:\Users\peapo\AppData\Local\Programs\Python\Python310\lib\runpy.py", line 196, in _run_module_as_main
+    return _run_code(code, main_globals, None,
+  File "C:\Users\peapo\AppData\Local\Programs\Python\Python310\lib\runpy.py", line 86, in _run_code
+    exec(code, run_globals)
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\__main__.py", line 61, in <module>
+    main()
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\__main__.py", line 41, in main
+    train(cfg_file=args.config_path, skip_test=args.skip_test)
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\training.py", line 813, in train
+    src_vocab, trg_vocab, train_data, dev_data, test_data = load_data(
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\data.py", line 73, in load_data
+    train_data = build_dataset(
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\datasets.py", line 696, in build_dataset
+    dataset = PlaintextDataset(
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\datasets.py", line 254, in __init__
+    super().__init__(
+  File "c:\data\cl\machinetranslation\joeynmt-hotfixed\joeynmt\datasets.py", line 61, in __init__
+    assert self.has_trg
+AssertionError
