@@ -15,12 +15,12 @@ data:
         # either use a vocabulary limit:
         voc_limit: 1000
         # or (= not both!) a file with a vocabulary built before starting the training:
-        voc_file : "data/bpe_vocab.de"
+        voc_file : "data/bpe_s_vocab.de"
         tokenizer_type: "subword-nmt"
         tokenizer_cfg:
             pretokenizer: "none"
             num_merges: 2000
-            codes: "data/codes.bpe"
+            codes: "data/small_codes.bpe"
 
     trg: 
         lang: "nl"
@@ -31,12 +31,12 @@ data:
         voc_limit: 1000
         # or (= not both!) a file with a vocabulary built before starting the training:
         #voc_file : "?"
-        voc_file : "data/bpe_vocab.nl"
+        voc_file : "data/bpe_s_vocab.nl"
         tokenizer_type: "subword-nmt"
         tokenizer_cfg:
             pretokenizer: "none"
             num_merges: 2000
-            codes: "data/codes.bpe"
+            codes: "data/small_codes.bpe"
 
 testing:
     beam_size: 3
@@ -60,7 +60,7 @@ training:
     validation_freq: 500
     logging_freq: 100
     eval_metric: "bleu"
-    model_dir: "models/transformer_enit_bpe"
+    model_dir: "models/transformer_enit_bpe_smallvoc"
     overwrite: False
     shuffle: True
     use_cuda: True
