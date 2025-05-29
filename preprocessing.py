@@ -1,7 +1,7 @@
 import re
 import random
 from nltk.tokenize import sent_tokenize, word_tokenize
-from sacremoses
+
 
 def file_slicer(input, output, n=100, temp=2.0):
     
@@ -41,10 +41,10 @@ if __name__ == "__main__":
 
     dir = "data/"
 
-    tag = "en-it"
+    tag = "en-nl"
     post_tag = "_sub"
 
-    suffixes = [".en",".it"]
+    suffixes = [".en",".nl"]
     prefixes = ["dev.", "test.", "train."]
 
     paths = [dir+pf+tag+sf for pf in prefixes for sf in suffixes]
