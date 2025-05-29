@@ -12,9 +12,6 @@ data:
         level: "bpe"
         lowercase: False
         max_sent_length: 100
-        # either use a vocabulary limit:
-        voc_limit: 2000
-        # or (= not both!) a file with a vocabulary built before starting the training:
         voc_file : "data/bpe_vocab.de"
         tokenizer_type: "subword-nmt"
         tokenizer_cfg:
@@ -27,10 +24,6 @@ data:
         level: "bpe"
         lowercase: False
         max_sent_length: 100
-        # either use a vocabulary limit:
-        voc_limit: 2000
-        # or (= not both!) a file with a vocabulary built before starting the training:
-        #voc_file : "?"
         voc_file : "data/bpe_vocab.nl"
         tokenizer_type: "subword-nmt"
         tokenizer_cfg:
