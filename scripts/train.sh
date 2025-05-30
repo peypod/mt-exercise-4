@@ -16,7 +16,7 @@ SECONDS=0
 
 logs=$base/logs
 
-model_name=transformer_denl_config_bpe
+model_name=transformer_denl_config_bpe_smaller_voc
 
 mkdir -p $logs
 
