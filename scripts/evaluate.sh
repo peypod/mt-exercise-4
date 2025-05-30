@@ -10,8 +10,8 @@ translations=$base/translations
 
 mkdir -p $translations
 
-src=?
-trg=?
+src=de
+trg=nl
 
 
 num_threads=4
@@ -21,7 +21,7 @@ device=0
 
 SECONDS=0
 
-model_name=?
+model_name=transformer_denl_config_bpe
 
 echo "###############################################################################"
 echo "model_name $model_name"
