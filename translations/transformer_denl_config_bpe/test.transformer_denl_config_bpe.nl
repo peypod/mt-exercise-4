@@ -5,7 +5,7 @@ De marshmallow moet bovenop zijn.
 En ook al is het echt simpel moeilijk, want het is heel moeilijk moeilijk, omdat het zo snel is dat mensen zeer snel samen te werken.
 En dus dacht ik dat dit een interessant idee is en ik heb het in een ontwerpwoordkshop.
 Het was een enorm succes.
-Sindsdien heb ik ongeveer 70 woorden in de wereld geïnteresseerd, met studenten, ontwikkelaars en architecten met studenten en architecten, zelfs met CTO's.
+Sindsdien heb ik ongeveer 70 woorden in de wereld geï¿½nteresseerd, met studenten, ontwikkelaars en architecten met studenten en architecten, zelfs met CTO's.
 Daar is iets aan deze taak dat diepe indrukwekkend in de natuur van de samenwerking van de samenwerkingsverbruikbazingwekkende mensen van jullie delen met delen.
 De meeste mensen zijn de meeste mensen zichzelf betere mensen zichzelf in de taak.
 Ze praten over de populaire vormen van het even van kracht.
@@ -14,7 +14,7 @@ Ze schetsen en spaghetti uit.
 Ze investeren een groot deel van hun tijd in de samenwerking van hun tijd in de samenwerkingsverbruikbare sociale structuren van de structuren.
 Nou, kort voordat ze geen tijd meer hebben, neemt iemand de marshmallow en ze hem bevat op de top, neemt een stap terug naar de top, en "Ta-da.
 Ze bewonderen hun werk.
-Maar wat dan bijna dan gebeurt is dat het "t-da" een "oe-oh-oh-oh" omdat het gewicht van de marshmallows beïnvloeden.
+Maar wat dan bijna dan gebeurt is dat het "t-da" een "oe-oh-oh-oh" omdat het gewicht van de marshmallows beï¿½nvloeden.
 Er is een aantal mensen die veel meer 'uh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh-oh
 Ze zijn de slechtste van BWL-absolventen.
 Ze liggen dat ze somberen, ze zijn verward en produceren echt discussie-gevormd.
@@ -23,7 +23,7 @@ De beste zijn de beste beste van de kleuterschool.
 Dat is nogal verbazingwekkend.
 Zoals we peters produceren produceren ze niet alleen de hulpmiddelen, maar ook de meest interessante structuren van allemaal.
 Waarom? Waarom? Waarom? Waarom? Waarom?
-En Peter Kéén van de kinderen geïnvesteerd tijdens de spaghetti van de spaghetti van de spaghetti van de spaghetti Gmb.
+En Peter Kï¿½ï¿½n van de kinderen geï¿½nvesteerd tijdens de spaghetti van de spaghetti van de spaghetti van de spaghetti Gmb.
 Ze investeren geen tijd in machtskapparatuur.
 Maar er is nog een reden.
 En dat BWL-studenten trainen werd getraind om een juiste plan te vinden, ok!
@@ -40,7 +40,7 @@ Misschien krijgen de kinderen onmiddellijk feedback wat werkt en wat niet.
 Zo is de prestatie om met prototypes te werken.
 Maar we zien hoe verschillende teams.
 De gemiddelde eeuwen de meeste ligt ongeveer 50.
-BWL-studenten creëren de populaire toenemen van de kwesties van de kwaliteit, maar niet veel.
+BWL-studenten creï¿½ren de populaire toenemen van de kwesties van de kwaliteit, maar niet veel.
 Kinderen zijn beter dan de volwassenen.
 Wie is het succesvol met succes?
 Architecten en ingenieur, het geluiden.
@@ -76,7 +76,7 @@ Wat de Marshmallow-Challenge doet is ze verstopte verstoppende aannames te ident
 Omdat iedere project heeft zijn eigen marshmallow.
 De uitdaging is een gemeenschappelijke ervaring om een gedeelde taal te bouwen.
 En dit is de waarde van deze ervaring, die zo eenvoudige lastic is.
-En de jullie die geïnteresseerd in kaart praktijk.
+En de jullie die geï¿½nteresseerd in kaart praktijk.
 Het is een blog waar je ziet, hoe je de Marshmallows.
 Er is een stap-stap-stap-stappen.
 Ze vinden verwoestende voorbeelden van over de hele wereld, zoals mensen het systeem optimaliseren.
@@ -113,10 +113,10 @@ De pokken. De pokken hebben miljarden miljarden mensen op deze planeet.
 Ze hebben de demografie van de aarde op een manier waarop geen oorlog.
 Ze zijn weg. Ze zijn weg.
 Wij hebben ze gedwonnen. Puff.
-In de rijke wereld bestaan ziekten, die miljoenen mensen voor ons slechts één generatie nog bedreigd hebben.
+In de rijke wereld bestaan ziekten, die miljoenen mensen voor ons slechts ï¿½ï¿½n generatie nog bedreigd hebben.
 Diphterij en plastic kwesties.
 Nou, dat is wat dit is?
-Vaccins, moderne geneeskunde, onze frustrategieën, dat zijn successen van de wetenschappelijke methode van de wetenschappelijke methode.
+Vaccins, moderne geneeskunde, onze frustrategieï¿½n, dat zijn successen van de wetenschappelijke methode van de wetenschappelijke methode.
 En uit mijn visie is de wetenschappelijke methode om dingen uit te proberen te proberen te kijken of het werkt dat het niet doet, een van de grootste instantie van de mensheid.
 Dat is het goede nieuws.
 Helaas is dat het hele goede nieuws, want er zijn een paar andere problemen, en ze zijn er een aantal andere problemen, en er is dat ondanks al onze veroorzaakt een miljard mensen in de wereld elke dag honger.
@@ -125,9 +125,9 @@ Niet alleen dat, we hebben onze verbeeldingskracht gebruikt om deze wereld te wo
 Trinkwater bij het land, regenwissel, regenwisseling en gas: je verdwijnen, en als we niet verdwijnen, en als we niet verdwijnen, en als we niet verdwijnen.
 De vraag is: kwestie is dat we dat doen? Ik denk dat we dat doen?
 Ik denk dat het duidelijk is dat we voedsel produceren van de miljarden mensen die echter hebben zonder het land, zonder het land te verkraken.
-Ik denk dat we deze wereld dat we deze wereld met energie verzorgen dat ze niet tegelijkertijd hebben met energie-economieën die ze niet tegelijkertijd.
+Ik denk dat we deze wereld dat we deze wereld met energie verzorgen dat ze niet tegelijkertijd hebben met energie-economieï¿½n die ze niet tegelijkertijd.
 Ik denk dat het echt en nee, dat is geen wensen.
-Maar dit is een van de dingen die me zo wakker -- één van de dingen die me wakker houden.
+Maar dit is een van de dingen die me zo wakker -- ï¿½ï¿½n van de dingen die me wakker houden.
 We hebben wetenschappelijke vooruitgang nog nooit zo dringend als nu nu, en we waren ook nog nooit in staat zijn om hem te gebruiken.
 We zijn op de drempel te verbazingwekkende gebeurtenissen.
 En toch denk ik dat we honderden, 300 jaar geleden de opkomst van de patronen om een tijd te vinden waar we in de vooruitgang krijgen tot vooruitgang krijgen tot een tijdschrift hebben gemaakt.
@@ -143,7 +143,7 @@ En binnenkort dat ik een artikel van het artikel van de sociale voedsel.
 Maar dat is het evenwicht in de economie.
 Mensen speelden.
 Dus heb ik ook een artikel geschreven en ik kon niet begrijpen waarom mensen dachten dat de mensen dachten dat de mensen die dachten dat molecule 'Frankenfood', waarom ze geloofden dat molecteren op een bepaalde manier waarop de natuur.
-Ik doe wat ik doe. Ik schreef de artikel, ik ben journalisten, we gaan eten, we gaan eten, we gaan eten, we gaan eten, dat is oké.
+Ik doe wat ik doe. Ik schreef de artikel, ik ben journalisten, we gaan eten, we gaan eten, we gaan eten, we gaan eten, dat is okï¿½.
 Maar deze artikels maakten me zorgen dat ik er niet uitzoeken waarom, en ik kon niet uitzoeken.
 En dat is dat deze fanatieici die me verwoestijnt geen fanaties waren.
 Dat waren omzichtige mensen, geleide mensen die piepklasse mensen.
@@ -153,7 +153,7 @@ Maar toen dacht ik: we weten dat we eerlijk: we zijn eerlijk: we zijn op een pun
 Wij praten over de dwiespelletjes.
 We hebben het ironisch gedrag met kleine aanvallen.
 "vooruitgang.
-Oké, dat is dat het evenwicht economie, en ik denk dat we weten welke basis van de praktijk.
+Okï¿½, dat is dat het evenwicht economie, en ik denk dat we weten welke basis van de praktijk.
 We hebben het vertrouwen in instellingen, in autoriteit, en soms in de wetenschap, en soms zijn er geen reden waarom dat niet zo moet zijn.
 Je kunt een paar naam noemen en mensen zullen begrijpen.
 Sernobyl, Bhopal, de challenger, viox, viox, massavernietigingswapens van 2000.
@@ -164,7 +164,7 @@ Stel je vragen, verlangen bewijs bewijs bewijs te bewijzen.
 Maar nu is het bewijs als je bewijs krijg je deze bewijs en dat is niet goed.
 En ik kan dat zeggen dat we nu in een epidemie van de furcht leven, zoals ik ze nog nooit meer gezien heb, en hopelijk nooit meer te zien.
 Ongeveer 12 jaar geleden werd een verhaal verbinding met de maserie van epidemie die de autisme-epidemie met de masers, mumps, en rustigniveau in verbinding.
-Zeer vreselijke economieën.
+Zeer vreselijke economieï¿½n.
 Hopenwijk studies werden gevormd om te zien of dat dat dat dat dat dit is.
 Hopenbare studies moeten doorgaan.
 De gegevens kwamen.
@@ -198,7 +198,7 @@ Dat is goed, behalve dat paul paul paul plastic en vertelt hoe waardevolle ze zi
 Mensen simpelweg naar jammer.
 En dat zegt dat hij zo uit.
 Paul is dus een terreur.
-Wanneer Paul in een publiek kwestie in een publieke wisseling van het publiek van de economieën.
+Wanneer Paul in een publiek kwestie in een publieke wisseling van het publiek van de economieï¿½n.
 Hij krijgt telefoontjes thuis omdat de mensen hem graag leren om hun kinderen naar school te gaan.
 Waarom? Omdat Paul een vaccin heeft gemaakt.
 Ik heb dit niet nodig, maar vaccins zijn ononthullen.
@@ -225,7 +225,7 @@ Ik blijkt dat je dit deed, omdat de huidige soorten de Amerikanen dat iedere dag
 Ze nemen het spul en ze nemen van alternatieve geneesmiddel, en het maakt geen enkele verschil hoe we dat nutteloos zijn.
 De gegevens is dat de gegevens.
 Ze verdonker. Meer en bijna niet.
-Dit is oké, je wilt graag 28 miljard donkere oorsprong betalen.
+Dit is okï¿½, je wilt graag 28 miljard donkere oorsprong betalen.
 Donker.
 Waarom doen we data Waarom doen we data Nou, ik begrijp -- we hebben de farmaceutische industrie.
 We hebben een te sterke overheid. We hebben geen vertrouwen in het systeem.
@@ -242,7 +242,7 @@ En weet je was? Als ik dat zeg, schreeuwen ik zeg: "Wat kruis? Laat de mensen do
 Zo stroomt ze zich goed."
 En weet je wat? Ze hebben ongelijk.
 Omdat het me niet niet te aannemen van de Minister is die zegt: "Hmm, ik ga de bewijzen van mijn experts mammografie niet aannemen."
-Of een kanker quacksalber, die zijn patiënten met koffiepatiënten met koffie-en-individuele patiënten met koffiehuis wil behandelen.
+Of een kanker quacksalber, die zijn patiï¿½nten met koffiepatiï¿½nten met koffie-en-individuele patiï¿½nten met koffiehuis wil behandelen.
 Wanneer je op deze manier waarop geloof en magie bewijzen en wetenschap vervangen op een plek waar je niet wilt.
 Zij gelangen naar Thabo Mbeki in het zuiveriveriversiteit.
 Hij bracht 400.000 van zijn mensen besloot omdat hij erop dat rode Beete, knoop, citronende, veel effectiever dan antivirale geneesmiddelen, waarvan we weten dat ze de verloop van AIDSS-Britmhalen.
@@ -265,9 +265,9 @@ En natuurlijk zijn er risico's.
 Maar we hebben een soort van vitamine A in reis, en het spul kan miljoenen mensen helpen om miljoenen mensen te helpen, miljoenen mensen hun leven te verliezen.
 Dat wil je niet doen?
 Ik moet zeggen dat ik niet.
-We hebben genetisch geëvolueerde voedsel af.
+We hebben genetisch geï¿½volueerde voedsel af.
 Waarom doen we dit?
-Nou, wat ik hoorlijk niveau is dat er een hoop chemicalië, monocultuur, monocultuur, monocultuur, dat is fout.
+Nou, wat ik hoorlijk niveau is dat er een hoop chemicaliï¿½, monocultuur, monocultuur, monocultuur, dat is fout.
 We willen niet dat bedrijven leven patenteren.
 We willen niet dat bedrijven verzamen.
 En weet je wat mijn antwoord op dit alles is?
@@ -288,7 +288,7 @@ Ze hebben het niet.
 Waarom? Genetchisch veroorzaakt voedsel.
 We willen mensen niet bemoedigen om dit verrood te eten, zoals Manio.
 Maniok is iets dat een half miljard mensen eten. Het is een kardappel.
-Het is slechts een buitenlandse kalorieën.
+Het is slechts een buitenlandse kalorieï¿½n.
 Het heeft geen enkele niveau en wetenschappers bouwen en wetenschappers bouwen.
 Daarna kwamen de mensen die dat eten en waarop het eten en weinig eten niet blind worden.
 Je wist dat ze niet zo voorkomen, en weet je wat?
@@ -296,14 +296,14 @@ Dit is de panitaire panisme niet Chez Panisse, maar het weinig panissen, de popu
 En alles wat ik kan zeggen is: "Waarom krijgen we dat doen?
 Ik bedoel, vragen we ons: "Waarom krijgen we dit?
 Omdat we geen genen willen schakelen?
-Het gaat niet om genen te omschrijven. Het gaat niet over chemicaliën.
-Het gaat niet om onze lambitieuze passie in de lijnen van de economieën van de soorten echter voedsel van de voedsel, unieke voedsel.
+Het gaat niet om genen te omschrijven. Het gaat niet over chemicaliï¿½n.
+Het gaat niet om onze lambitieuze passie in de lijnen van de economieï¿½n van de soorten echter voedsel van de voedsel, unieke voedsel.
 Het gaat niet om Rice crispiek, het gaat over mensen in leven te houden.
-Het zal echter economieën begrijpen wat dat betekent.
+Het zal echter economieï¿½n begrijpen wat dat betekent.
 Want weet je wat?
 Als we dat niet doen, als we dat niet doen, als we zo verder doen als we ons iets schuldig willen schuldig zijn om te schuldig te zijn, high-tech-kolonialisme.
 Er zijn geen andere verhalen van wat er hier gebeurt.
-Het is zelfzuchtig. Het is de populair, het is ons niet weinig even van de populaire economieën.
+Het is zelfzuchtig. Het is de populair, het is ons niet weinig even van de populaire economieï¿½n.
 Na deze ongelofelijke gesprekken wil je misschien zeggen: "Wil je misschien zegt: "Wil je nog steeds in deze lokale tijdmachine en in de toekomst gaan?"
 Op elk geval. Dat wil ik op elk geval.
 Op dit moment stopt ze in het heden, maar we hebben een ongelofelijke mogelijkheid.
@@ -327,7 +327,7 @@ Een boek dat dat werd herfilmd.
 Robert Downey junior als Steve Lopez Lopez.
 Jamie Foxx als Nathaniel Anthony Ayers.
 De contrabassisten die aan de Juilliard-conservatorium bestudeerd.
-Daarmee bezigende carrière.
+Daarmee bezigende carriï¿½re.
 Misschien zijn paranoide schizofrenie van zijn paranoide schizofrenie.
 Nathaniel verliezen dat nu echter een zenuwcijfers van een zenuw.
 Ten 30 jaar later leefde hij als daklozen.
@@ -344,11 +344,11 @@ Hij had net een voorrecht van Beethovens eerder en viers van Beethoves van Beeth
 Ik kwam achter de buitenkant om me te voorstellen.
 Hij sprak in een zeer heidszorg.
 Misschien is Yo-Yo Ma en Hillary Clinton.
-Daarbij krijgen we de basebal World Series creëren van World Series.
+Daarbij krijgen we de basebal World Series creï¿½ren van World Series.
 En dat is allemaal de eerste geest van de eerste geest.
 In de laatste zin Beethovens viers Viers Sinfonie.
 We kwamen muziek op het onderwerp van muziek kwam ik een e-mail.
-Niet dat Nathaniel glazen zich in mijn geïnteresseerd.
+Niet dat Nathaniel glazen zich in mijn geï¿½nteresseerd.
 Ik moet nog verwoestend dat Nathaniel een medische behandeling.
 Hij was al met elektrische schokken.
 Met Thorazin en handcellen.
@@ -403,7 +403,7 @@ Hij sprak van haar met een passie.
 Het is een kwestie van mijn collega's die ik anders van mijn collega.
 In de Filharmonie van Los Angeles.
 Door muziek speelde en echte muziek sprak.
-Dat was een paranoïde.
+Dat was een paranoï¿½de.
 Sterker man.
 De straks van de straks van de straks van de straf.
 Los Angeles.
@@ -416,7 +416,7 @@ Ze hebben een waanvoorstellingen met zijn hulp.
 Verbeelding en creativitaire verbeelding.
 Het is een beetje realiteit in wat realiteit in iets realiteit.
 Zo ontvliet hij het vliet van de hulp.
-Het is een kwesties van de economieën.
+Het is een kwesties van de economieï¿½n.
 Ik begreep dat het de kunst is.
 Dat is de reden waarom we muziek.
 Dat is wat we in ons allemaal.
@@ -426,7 +426,7 @@ Het is de reden van onze kruidentiteit.
 Het is de realiteit van onze creativiteitskwesties.
 De werkelijkheid van die uitdrukkingen.
 Het is ons allemaal.
-Hij beweegt, geïnspireerd, geïnspireerd.
+Hij beweegt, geï¿½nspireerd, geï¿½nspireerd.
 Wat Nathaniel.
 Zo bracht hem de muziek in een gemeenschap van vrienden.
 De buurt van de muziek van de muziek bracht hem in de buurt.
@@ -446,13 +446,13 @@ Ik hoop dat jullie me.
 Ik ben Jane McGonigal. Ik ontwerp.
 Ik heb nu al 10 jaar online-spelen.
 En mijn doel vastleggen om het even te doen is het net zo gemakkelijk om de wereld te redden om de wereld te redden in online spelen.
-Ik heb een plan van een plan dat ik veel meer mensen in de vorm van mensen die echter economieën.
+Ik heb een plan van een plan dat ik veel meer mensen in de vorm van mensen die echter economieï¿½n.
 We hebben drie miljard uur per week met online spelen.
 Sommigen van jullie denken misschien, "Dit is een hele hoeveelheid van spelen.
 Misschien iets te veel tijd als je bedenkt hoeveel problemen we dringend in de echte wereld hebben in de echte wereld, in de echte wereld van de echte wereld, in de echte wereld, als je denkt dat we in de echte wereld.
 In feitelijk onderzoek naar mijn onderzoek aan de instituut van de toekomst is het tegenovergestelde toekomst van het tegenovergesteld.
 Drie miljard uur per week zijn niet zo weinig genoeg om de meeste problemen van de wereld te leren van de wereld te lopen.
-Waarschijnlijk ben ik geïnteresseerd dat als we de niveau van de eeuwen op deze planeet in deze planeetaire eeuwen.
+Waarschijnlijk ben ik geï¿½nteresseerd dat als we de niveau van de eeuwen op deze planeet in deze planeetaire eeuwen.
 Ik heb berekend dat de populaire tijd 21 miljard uur per week.
 Dat lijkt eerst misschien iets af, dus ik herhaal dat ik het kan doen.
 Als we problemen als honger, armoede, klimaatverandering, klimaatverandering, globale conflicten en zwaarlijvigheid, geloof ik dat spellen minstens 21 miljard uur per week tot het einde van het einde van de van het einde van de neiging van het einde van de decennia te spelen.
@@ -466,7 +466,7 @@ Je ziet waarschijnlijk deze geest in de vorm van deze concentraties, maar ook ec
 Als je ook spelt, zie je een aantal nuances die naar bovenaan, en de mond zijn een teken optimisme.
 De oogste oogsten.
 Dit is een speler die op de rand van een zogenaamde epische hoeveelheden.
-Oh, je kent dit. Oké. Prima.
+Oh, je kent dit. Okï¿½. Prima.
 We hebben een paar spelers hier.
 Een epische zeg is een resultaat, dat zo positief is dat je eerder niet wisten dat je eerder niet wisten dat het niet wist was dat het niet wist was.
 Het was bijna de verbeelding.
@@ -476,17 +476,17 @@ En dit is wat we hebben op miljoenen gezichten van problemen in de wereldwijde e
 Het gezicht van hun gezicht aan de rand van de widrigheden van een epische kwestie.
 Tja, helaas zien we dat gezicht in het echte leven, als we moeilijke problemen.
 Ik noem het als het "In leven ben ik slecht-gezicht.
-En het is echt mijn gezicht, zie je? Ja? Oké.
+En het is echt mijn gezicht, zie je? Ja? Okï¿½.
 Dat ben ik, zoals ik in het leven ben ik slecht-gezicht.
-Dit is een graffiti in mijn voormalige thuis in Berkeley, Californië, waar ik in mijn doctoraal beter zijn dan in het echte leven.
+Dit is een graffiti in mijn voormalige thuis in Berkeley, Californiï¿½, waar ik in mijn doctoraal beter zijn dan in het echte leven.
 Dit is een probleem.
 We denken dat we in de realiteit niet zo goed zijn als in spelen.
 En ik bedoel niet alleen maar minder succesvol is dat de populair.
-We bereiken in spelwerelden meer. Ik bedoel goed in de context met de motivatie, geïnspireerd.
+We bereiken in spelwerelden meer. Ik bedoel goed in de context met de motivatie, geï¿½nspireerd.
 Als we in een spelletje in een spel dat velen van ons in onze beste versie veranderen in onze beste versie en onmiddellijk helpen zijn.
 We probeerden het probleem van de kwesties proberen te proberen te proberen te proberen.
 En in de realiteit, als we falen.
-Wij maken dat deze economieën in de patroon.
+Wij maken dat deze economieï¿½n in de patroon.
 Wij maken dat we de evenwicht.
 Misschien is dat we de keuzes ons bedreigd of cynisch.
 We hebben deze geestroomt niet als we spellen spelen.
@@ -511,7 +511,7 @@ Er zijn een episch verhaal, die inspirerende verhaal, dat inspirerende verhaal, 
 Dan krijgen we dit hele positieve feedback.
 Ze hebben bepaald van 'nive' en 'plus populaire economie-intelligentie'.
 Deze constante feedback is er niet in het echte leven.
-Wanneer ik deze buitenkant verlaten, dan heb ik niet: niet: nuplus een pluchtbel pluiten ideeën.
+Wanneer ik deze buitenkant verlaten, dan heb ik niet: niet: nuplus een pluchtbel pluiten ideeï¿½n.
 Ik krijg het echte leven van dit feedback niet.
 Dus het probleem van samenwerking online werelden als World of Warcraft is dat het zo bevredigend is dat het zo bevredigend is, dat we liever onze hele tijd in deze spelaties.
 Ze zijn gewoon beter dan de realiteit.
@@ -520,7 +520,7 @@ Dat is niet noodzakelijk.
 Het klinkt wellicht in de buurt.
 Maar om het eens te zien in de context van 5,93 miljoen jaar geleden begonnen onze eerste primaten.
 Het eerste spannende primat.
-Oké, als we de populaire tijd hebben we nu met spelen met spelen, is dat alleen zin, als je de tijd in de patronen van de evolutie van de menselijke ontwikkeling van de evolutie van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling is dat de evolutie van de menselijke ontwikkeling in de buurt van de re
+Okï¿½, als we de populaire tijd hebben we nu met spelen met spelen, is dat alleen zin, als je de tijd in de patronen van de evolutie van de menselijke ontwikkeling van de evolutie van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling van de menselijke ontwikkeling is dat de evolutie van de menselijke ontwikkeling in de buurt van de re
 Maar het blijkt dat we deze hele tijdschrift, door deze hele tijdschriften gebruiken om de spelletjes, waarbij we de mensen in staat zijn.
 We ontwerpen ons te gemeenschappelijke wezens.
 Dat is de waarheid. Daran geloof ik.
@@ -542,7 +542,7 @@ Dit zijn onze meester-spelers.
 500 miljoen mensen die echter evenwicht in 'Etwas' zijn.
 We hebben nog een miljard decennia hebben we nog een miljard spelers, de mensen die evenwicht in wat er ook zijn.
 Als je het nog niet hebt gemaakt.
-De spelindustrie ontwikkelt consolute besparen en en op mobiele telefoon, in plaats van de brietband-internet, vooral in India, China, Brazilië in India, China, Brazilië.
+De spelindustrie ontwikkelt consolute besparen en en op mobiele telefoon, in plaats van de brietband-internet, vooral in India, China, Braziliï¿½ in India, China, Braziliï¿½.
 Je verwacht een extra miljard spelers in de buurt van de economische economie.
 We hebben dat 1,5 miljard spelers.
 Dus ik begon te proberen wat het is waar deze spelletjes.
@@ -569,10 +569,10 @@ Je kent bepaalt alle Wikipedia, het weinig evenwichi van de wereld.
 De tweede rechterkant van de wereld, met bijna 80.000 intrigering is het World of Warcraft Wiki.
 Miljoenen mensen gebruiken het elk maand.
 Ze hebben meer informatie in de wereldwijd van World of Warcraft op het internet, in elk andere Wiki wereldwijd in elk andere Wiki wereld.
-Ze creëren een episch verhaal.
-Ze creëren een epische bron van de World of Warcraft.
+Ze creï¿½ren een episch verhaal.
+Ze creï¿½ren een epische bron van de World of Warcraft.
 OK, dit zijn vier superkrachtigheden die een enkele resultaat.
-Spelers zijn super-economieën, hopelijk individuen.
+Spelers zijn super-economieï¿½n, hopelijk individuen.
 Het zijn mensen die geloven dat ze de wereld dat ze de wereld veroorzaken.
 En het enige probleem is dat ze geloven dat ze geloven dat ze de virtuele wereldkoorts van de realen.
 Dat is het probleem dat ik probeer te maken.
@@ -595,13 +595,13 @@ Dat waren de eerste mensen ontwikkelden dat de eerste mensen ontwikkelde spelreg
 En als je met de waarde van de oude Griekse historicus herodotus van de oude Griekse historicus herodotus van de oude Griekshistoricus Herodotus van het oude Grieksgegeven.
 De geschiedenis van hoe en waarom spellen uitgevonden.
 Laut Herodotus werden spellen, evenwicht in de kruisspelletjes, in de kwestie van een hongersnood uitgevonden.
-Er was een grote hongersnood dat de krustige hongersnood van lydien zichzelf op een verminderende ideeën.
+Er was een grote hongersnood dat de krustige hongersnood van lydien zichzelf op een verminderende ideeï¿½n.
 Mensen litten. Mensen kiezen dat mensen kiezen.
 Het was een extreme situatie. Je had een extreme lastige locatie.
 Dus begonnen ze, luid herodotus, de weinigheden een nationale strategie.
 Op een dag waarop je eet.
 Nieuwe dagelijkse dag.
-En ze weinigen dat het zo industriële spelletje zo fascinerend zijn, omdat spelletjes zo fascinerend zijn en bevredigende productieve soorten dat ze vergeten.
+En ze weinigen dat het zo industriï¿½le spelletje zo fascinerend zijn, omdat spelletjes zo fascinerend zijn en bevredigende productieve soorten dat ze vergeten.
 En dat is de meest nauwkeurige dag waarop we spelen.
 De niveau van de neiging van eet.
 En luid Herodotus leefden ze zo'n 18 jaar lang.
@@ -625,7 +625,7 @@ Dit is wat deze verhalen die vertrouwen dat is waar we in de vorm van deze verha
 Misschien hebben ze hun volk gemaakt door spel van spelen, door spel van spel door spelletjes in spelletjes, en dan deze inspelletjes, en dan dat ze de hele gemeenschappelijke beschaving hadden gered en dat ze de hele beschaving.
 Dat is wat we nu even echter dan ook.
 We spelen sinds 1994.
-Dit was de eerste strategieën in real-time in real time. Dat was 16 jaar geleden.
+Dit was de eerste strategieï¿½n in real-time in real time. Dat was 16 jaar geleden.
 Ze speelden 18 jaar lang weinigen spelen we spelen sinds 16 jaar wacent.
 Ik zeg dat we bereid zijn voor ons eigen episch spel.
 Ze stuurden de hulp van hun beschaving van hun beschaving naar de zoektocht naar een nieuwe wereld.
@@ -634,9 +634,9 @@ Wij moeten dat de populaire toename van ons een uur per dag met spel verspreiden
 Ik zal dat jullie even vragen: "Hoe lijken we problemen van de echte wereld in spelen?" En dat is precies die vraag heb ik mijn werk in de afgelopen jaren de toekomst.
 We hebben deze bron in ons buurt in onze buurt in Palo Alto, het is dat we de toekomst begrijpen.
 We willen niet proberen de toekomst vooraf te vragen.
-Wat we willen, is de toekomst te creëren.
+Wat we willen, is de toekomst te creï¿½ren.
 We willen de beste eeuwse resultaten.
-En dan mensen het vermogen om deze ideeën in de realiteit van de realiteit.
+En dan mensen het vermogen om deze ideeï¿½n in de realiteit van de realiteit.
 We geven ons epische zegen voor en geven mensen de mogelijkheden om ze te bereiken.
 Ik toon jullie drie spellen die ik ontworpen heb ontworpen om mensen epische zegen in hun eigen toekomst te maken.
 Dit is "wereld zonder eeuwig."
@@ -660,7 +660,7 @@ Deze supercomputers hechtig is "Globales uitstervings- senibilisatie-systeem, na
 De oproep aan spelers, hebben we bijna als een "Jerrybruckheimer: "Film.
 Je kent Jerry Bruckheimer-films waar er de Dream-team.
 Ze hebben de astronauten, de wetenschappers, de ex-stroom van de ex-stroom van de wereld te redden.
-Maar in ons spel, in plaats van slechts vijf mensen in het Dream-team, en het is onze taak om de toekomst van de toekomst van sociale gezondheid, veiligheid en de toekomst van sociale rechtvaardigheid te creëren.
+Maar in ons spel, in plaats van slechts vijf mensen in het Dream-team, en het is onze taak om de toekomst van de toekomst van sociale gezondheid, veiligheid en de toekomst van sociale rechtvaardigheid te creï¿½ren.
 8.000 spelers speelden het spel 8 weken lang.
 Ze vonden 500 ongelofelijk creatieve soorten die je opleveren als je 'superstruct'.
 En het laatste spel brengen we de 3ste kaart in samenwerking met de Wereldbank.
@@ -679,20 +679,20 @@ Ik hoop dat je met dit soort spel ontwerpen en spelen.
 Wanneer ik in de neiging naar het naast kijk, dan ben ik bij twee dingen, dat we elk voorstelbare toekomstige toekomst gepast en dat we de mogelijkhedendaagse spelletjes.
 Dus ik zeg dat het spel begint te beginnen met de wereldwijde spelletje.
 Dank je wel.
-Ik geïnteresseerd in de placebo-effect.
-Het blijkt dat het placebo-effectief is dat een magier geïnteresseerd is dat het een magie van de placebo, die naar iets ets zal gaan als iemand iemand in zekere zin geloven in een paar studies in sommige studies in sommige studies een meetbare effect.
+Ik geï¿½nteresseerd in de placebo-effect.
+Het blijkt dat het placebo-effectief is dat een magier geï¿½nteresseerd is dat het een magie van de placebo, die naar iets ets zal gaan als iemand iemand in zekere zin geloven in een paar studies in sommige studies in sommige studies een meetbare effect.
 En dat is gewoon omdat de persoon denkt wat er met haar gebeurt, een farmaceutische of een soort ...
-Bijvoorbeeld, bijvoorbeeld, als de patiënt slechts vast genoeg geloven in de placebo-effecten in de placebo-effect noemt.
+Bijvoorbeeld, bijvoorbeeld, als de patiï¿½nt slechts vast genoeg geloven in de placebo-effecten in de placebo-effect noemt.
 Het is een stukje van de echte echtgenoot omdat iemand het zo waarneemt.
 Daarmee we ook een elementaire totaal dat ik nu een elementaire magisch makkelijke goocheltruc laten zien.
 En ik zal jullie laten zien hoe het werkt. Dit is een truc, die minstens sinds de jaren '50.
 Ik leerde hem van de Cub Scout Magic van de pad in de jaren 70.
-Ik ga hem even even echter economieën.
+Ik ga hem even even echter economieï¿½n.
 Dan ga ik het eindigen waarom ik hem het uitleggen van de populair.
 Kijk wat er gebeurt.
 De messen dat je bestuderen dat je bestudeert, mijn hand, die je bestudeert.
 Ik ga het meter gewoon zo'n beetje in mijn buurt houden.
-Ik maak er een kernstige economieën.
+Ik maak er een kernstige economieï¿½n.
 Om zeker te stellen dat niets in mijn patroon of uit hem komt, of uit hem komt, zal ik mijn handgel met de handgel van de pols van deze pols hebben gemaakt.
 Op deze manier kruidata is dat niemand een tijdschrift.
 Niet alleen beweegt. Zolang ik hier toe dat ik hier kan niet in de mijl leren of uitkomen.
@@ -701,7 +701,7 @@ Ik ga mijn huidige soorten en hopelijk als alles goed gaat, wordt het mes door m
 Het zit zo vast aan zijn platteland, dat ik het plas kan leren zonder dat het mes kan leren zonder dat het mes loopt.
 Niets is dat niet in de mooie kwaaruit en uit, geen trickserij.
 Ta.
-Dit is een trick, die ik vaak geïnteresseerd zijn in de piepklein kinderen die piepklare geïnteresseerd zijn als je goed kijkt.
+Dit is een trick, die ik vaak geï¿½nteresseerd zijn in de piepklein kinderen die piepklare geï¿½nteresseerd zijn als je goed kijkt.
 Hoewel het een zeer eenvoudige kwestie is.
 Velen van jullie kennen velen van jullie in de zaal die truc.
 Hij werkt.
@@ -738,14 +738,14 @@ Dat is de beslissing ...
 ... dat ook de dosis een rol spelen.
 De vorm speelt een rol.
 En als je de ultieme placebo-effect hebben gemaakt, moet je de naald.
-Nog een paar miljoen injecteert met een effectiviter van een effectiviteit van een effecten die je een patiënt injecteert.
-Het creëert een zeer sterk beeld.
+Nog een paar miljoen injecteert met een effectiviter van een effectiviteit van een effecten die je een patiï¿½nt injecteert.
+Het creï¿½ert een zeer sterk beeld.
 Dit is een hoop pilles.
 Deze grafiek is echt ... ik ga jullie een ander keer laten zien als we een projector hebben.
 Dus het feit is dat de enorme pillen niet zo goed is als de blauwe pille, die niet zo goed is als een kapsel, die niet zo goed werkt als een kapsel, die niet zo goed werkt.
 En niets daarvan heeft een farmaceutische eigenschap.
 Het is slechts ons geloof dat in ons een stapel evenwicht bij ons een patroon in de buurt.
-Ik wilde weten of ik dit idee dat ik een goocheltruc-magnetische economieën.
+Ik wilde weten of ik dit idee dat ik een goocheltruc-magnetische economieï¿½n.
 Ik neem iets dat ik een kaart primaire scherm is en laat het echt uitzien.
 We weten uit die studie dat je naar de naald moet gaan.
 Dit is een 18 centimeter. Ze is heel, heel erg piek.
@@ -755,7 +755,7 @@ Dit is mijn huid. Dit is geen specialeffect van Hollywood.
 Ik ga deze naald in mijn huid stoppen en door ze te drijven, totdat ze weer weer opnieuw.
 Als je in je zulke zult in je zult vallen -- ik heb dit enkele vrienden in de hotelkamer in de hotelkamers, en sommige mensen die ik niet kende.
 Het is een vrouw bijna onvermijdelijk.
-Dus ik stel dat als je snel even snel krijgt, dan kijk je naar de economieën van de economieën, en dan kijk naar de eerste heilspelen.
+Dus ik stel dat als je snel even snel krijgt, dan kijk je naar de economieï¿½n van de economieï¿½n, en dan kijk naar de eerste heilspelen.
 Je ziet dat er evenement, kun je ook zien dat je ook weer in de populair.
 Dus, dit is precies hier.
 Mijn vlees is dat mijn vlees in het onderdeel van mijn arm ga ik gewoon een klein installatie.
@@ -767,9 +767,9 @@ Maar nu kruisstoffen jullie mijn vingers niet kiezen, toch?
 Dus, ga ik jullie laten zien. Dit is een twee, drie, vier, vier, vier.
 Nou ja.
 Ik bedoel, wat mensen denken, als ze dat zien.
-Ze zeggen: "Oké, het is niet zo blijkt en doorstaan zichzelf de huid, alleen om ons een paar minuten te onderhouden."
+Ze zeggen: "Okï¿½, het is niet zo blijkt en doorstaan zichzelf de huid, alleen om ons een paar minuten te onderhouden."
 Hoe ziet dat er hier eruit? Geid.
-Ja, ik ben er zo uit. En de mensen achten zeggen: "Oké. Ik heb het niet goed gezien.” De mensen in de nevenwicht bij de nevenwicht bij de buurt.
+Ja, ik ben er zo uit. En de mensen achten zeggen: "Okï¿½. Ik heb het niet goed gezien.ï¿½ De mensen in de nevenwicht bij de nevenwicht bij de buurt.
 Laat me het jullie laten zien.
 Dit is echt mijn huid. Dit is geen specialeffect van Hollywood.
 Dit is mijn vlees en ik kan het ronddraaien.
@@ -791,7 +791,7 @@ Je kon je waarschijnlijk verkopen.
 Ik had een relatie met deze lastic gedurende een relatie met deze patroon.
 Op een dag belde baad van de baas van de bedrijf en vroeg of ik dat ik een verantwoordelijkheidszorg van duurzaamheid van de boerderij.
 Ik zei: "Natuurlijk" zei ik.
-Hier was een bedrijf dat deze prachtig probeerde wat dit onvoorstelbare problemen van de kwesties van deze sociale problemen van de economieën.
+Hier was een bedrijf dat deze prachtig probeerde wat dit onvoorstelbare problemen van de kwesties van deze sociale problemen van de economieï¿½n.
 Hoe behouden we vis op onze geheugen?
 In de afgelopen 50 jaar hebben we de oceanen in de afgelopen 50 jaar geleden.
 Het is moeilijk om de verstoorlopen.
@@ -799,9 +799,9 @@ Het is moeilijk om de verstoorlopen.
 Het is bijna niets.
 Dus, en dat is de Aquaccultuur, visboodschap, een deel van onze toekomst zijn.
 Veel argumenten gegeven.
-Via vervuilen het milieu, de meesten van hen en ze zijn inefficiënt, nemen we tonijn.
+Via vervuilen het milieu, de meesten van hen en ze zijn inefficiï¿½nt, nemen we tonijn.
 Een grotere boodschap.
-Hij heeft een voedsel van 15 tot één van 15 naar één te gaan.
+Hij heeft een voedsel van 15 tot ï¿½ï¿½n van 15 naar ï¿½ï¿½n te gaan.
 Dit is de pond 15 pond wellicht pond pijponnen zodat je een pond pijponnen krijgt.
 Niet heel duurzaam.
 Smakker niet erg goed.
@@ -814,10 +814,10 @@ Laten we hem Don.
 En dan stapte hij toe, "We zijn een eigen wereld.
 Deze voeding van 2,5 naar 1,5 naar 1" zei hij: "De beste in de bloed."
 2.5 tot 15 tot eenvoudig.
-"2.5 naar één wat? Wat is er zo achter?"
+"2.5 naar ï¿½ï¿½n wat? Wat is er zo achter?"
 "Daardigijke eiwitten.
-"Groot-economieën, ik vertelde ik op.
-Op dit avond ik in bed en dacht: wat is een duurzame proteïn?
+"Groot-economieï¿½n, ik vertelde ik op.
+Op dit avond ik in bed en dacht: wat is een duurzame proteï¿½n?
 Dus ik belde neiging met de neiging kort voor de verantwoordelijkheid.
 Ik zei: "Don, wat bijvoorbeeld zijn duurzame eiwitten.
 Hij zei dat hij het niet. Hij zal vragen.
@@ -857,10 +857,10 @@ Hij is een bioloog bij Veta La Palma.
 Dit is een visserij in de zustelijke hoek van Spanje.
 Het is dichtbij de mooie van de rivier.
 Tot in de jaren 80 was de boerderijen van Argentineel.
-Ze hebben geëvolueerde vleesrij in wat er gebeurt in de vuur.
+Ze hebben geï¿½volueerde vleesrij in wat er gebeurt in de vuur.
 Ze deden het door het land te ontwerpen.
 Ze bouwden deze gecompliceerde gevolg van keten, en ze gebruiken water uit het land.
-Ze konden niet beïnvloeden dat het niet economisch zijn.
+Ze konden niet beï¿½nvloeden dat het niet economisch zijn.
 En dat is het een catastrofijn.
 Het bracht ongeveer 90 procent van de buitenkant van 90 procent van de voedsel.
 Dat is wat er gebeurd is dat er een heleboel evenwicht.
@@ -876,11 +876,11 @@ Ik bedoel, je hebt nog nooit gezien.
 Ze stoppen naar de horizon, die een miljoen kilometer verwijderd is en alles wat ze zien zijn gevlukte ketters.
 Ik was daar niet lang geleden met miguel.
 Hij is een ongelofelijke kerel Charles Darwin en een deel van de krokodil naar de krokodil van de krokodil tot de krokodil tot de krokodil van de krokodil en een deel van "Een krokodil Darwin en een deel van de krokodil en een deel van de krokodil van Charles Darwin en een deel
-Oké? Daar waren we en kwesties door de vuur, en ik keuken en moeilijk, en ik knië tot mijn knië, en miguel verzamelt een biologie-voorlezing.
+Okï¿½? Daar waren we en kwesties door de vuur, en ik keuken en moeilijk, en ik kniï¿½ tot mijn kniï¿½, en miguel verzamelt een biologie-voorlezing.
 Dit is een zeldzame gelijk.
 Nou, verwoestend de mineralbedreiging van de fytoplankton.
 Hier zie je een patroon van bruikbare, die hem aan de Tanzanzanse graffect.
-Het blijkt dat migiguel de eeuwen deel van zijn carrière in het Micumi National Park.
+Het blijkt dat migiguel de eeuwen deel van zijn carriï¿½re in het Micumi National Park.
 Ik vroeg hem hoe hij zo'n vis geworden.
 Hij zei: "Viss? Ik ben niet veel mensen in de prachtige prijs.
 Ik ben een expert met een expert van relatie."
@@ -917,7 +917,7 @@ Dit is een cologisch netwerk.
 De vlamingos voeten de garnalen.
 De garnalen zijn de fytoplankton.
 Hoe pinker het systeem."
-Oké, laat je dat je de populair.
+Okï¿½, laat je dat je de populair.
 Een boerderijen die hun dieren niet kwaaruit en een boerderijen die hun succesvol op de gezondheid van hun populair.
 Een visserveer, maar ook een vogelreservaat.
 Oh, en naast moeten deze vlamingo's niet eens zijn.
@@ -926,23 +926,23 @@ Elke ochtend vliegen ze 240 kilometer.
 Iedere avond ze 240 kilometer in de populair.
 Ze doen dat, omdat ze de gestrichelde lijn van de landstraks van de landstrijd in de landstrijd in de landstrijden.
 Het is de eerst.
-Ik had een soort reis van de pinguïns van de pinguel.
+Ik had een soort reis van de pinguï¿½ns van de pinguel.
 Ik zei: "Hier, vliegen ze 240 kilometer naar de boerderij en vliegen ze dan 240 kilometer op de avond?
-Maak dat ze de economieën die kinderen?"
+Maak dat ze de economieï¿½n die kinderen?"
 Hij keek me aan als een lied van Whitney Houston.
 Hij zei: "Nee. Ze doen dat omdat het beter is."
 Ik heb niet de huid van mijn geliefde vis van mijn geliefde vis die kruisen ik houd niet van vissen.
-Ik hou niet van het geïnteresseerd.
+Ik hou niet van het geï¿½nteresseerd.
 Het is deze bijeenkomstige soorten.
 Ik heb bijna nooit het mee.
 En toch, toen ik ze in dit restaurant in zulke zuigheden in de zulke lawaai.
-Ze smaakte zodat ze echter economieën, alsof je een builen van de oceaan nemen van de oceaan.
+Ze smaakte zodat ze echter economieï¿½n, alsof je een builen van de oceaan nemen van de oceaan.
 Ik maakte dat dat dat dit in de buurt van miguel en hij niks.
 Hij zei: "De huid is als een zwmijn.
 Het is de laatste afweergegeven, voordat er iets in de kaart van de kwestie.
 Ze heeft zich in de loop van de evolutie van de evolutie om onrustigheden op te zuigen."
 En dan stapte hij toe: "Maar ons water heeft geen onrustigheid."
-Oké. Een boerderijen die hun vissen.
+Okï¿½. Een boerderijen die hun vissen.
 Een boerderijen die hun succes op het succesvol van hun patronen.
 Toen hij me vertelde me dat als hij zegt dat een boom, die geen onreinheden heeft, want het water dat door deze boerderijen van Guadalqui.
 Het is een rivier, die al die dingen met plastic cultuur, die plastic plastic en afval, chemische schadstoffen, chemische schadstoffen, afval, afval.
@@ -965,11 +965,11 @@ En als je zegt dat dit de dingen die de toekomst goede voedsel van goede voedsel
 Hoe zul je de wereld seren?"
 Kan ik eerlijk zijn?
 Ik vind deze vraag niet.
-Niet omdat we al genoeg calorieën produceren om de wereld meer dan enkel te ernstige soorten.
+Niet omdat we al genoeg calorieï¿½n produceren om de wereld meer dan enkel te ernstige soorten.
 Een miljard mensen zullen vandaag honger.
 Een miljard -- dat is meer dan ooit tevoren van ongelijkheden in de verdeling, niet het totaal productie.
 Ik vind deze vraag niet omdat ze de logica van ons voedselsysteem de afgelopen 50 jaar, de afgelopen 50 jaarlijks in de afgelopen 50 jaarlijks gemaakt.
-Maardere Getrijd aan planteneters, planceren, prachtige patronen in de monocultuur, chemicaliën aan de aarde, chemicaliën en de hele tijdschrift, en de hele tijd heeft de Agrondstoffen, zoals vreselijk kan dat zijn?"
+Maardere Getrijd aan planteneters, planceren, prachtige patronen in de monocultuur, chemicaliï¿½n aan de aarde, chemicaliï¿½n en de hele tijdschrift, en de hele tijd heeft de Agrondstoffen, zoals vreselijk kan dat zijn?"
 Dat was de beweging.
 Het was de rechtvaardigheid.
 Het was de buitenkant van de Amerikaanse landbouw.
@@ -978,7 +978,7 @@ Dit is geen gewaarde, en het is niet landbouw.
 Onze corns is vandaag bedreigd, niet vanwege de afval, maar door de recente middelen, niet door de recente middelen, niet door de recente uitvindingen.
 Ze willen de wereld ernstige economie?
 Laten we beginnen met de vraag: hoe gaan we onszelf ons?
-Of beter hoe we deze economieën creëren die elke gemeenschap, die elke gemeenschappelijke soorten die zichzelf evenwicht in de patronen?
+Of beter hoe we deze economieï¿½n creï¿½ren die elke gemeenschap, die elke gemeenschappelijke soorten die zichzelf evenwicht in de patronen?
 Om dat te doen, kijk niet naar de lancering model van de toekomst.
 Het is echt oud, en het is verledigd.
 Kapitaal, chemie en machines zijn er bovenaan en het heeft nooit iets echt goed geproduceerd.
@@ -1012,14 +1012,14 @@ Het enige probleem was dat ik in een klein dorp in Canada woonde, 1.000 kilomete
 Maar dat is niet ontmoedig.
 Ik nervde mijn vader, totdat hij eindelijk een duikschool in Buffalo, New York, uitvind op de andere kant van de grens, waar we woonden.
 Ik maakte mijn duiks in een pool van de YMCA in de winter in de winter in Buffalo, New York.
-De oceaan af, een echte oceaan, kreeg ik een echte oceaan, toen we naar Californië.
+De oceaan af, een echte oceaan, kreeg ik een echte oceaan, toen we naar Californiï¿½.
 Sindsdien in de 40 jaar, die intussen verspreid zijn, heb ik ongeveer 3.000 uur onder water verbazingwekkende duikboten.
 En ik leerde dat de wereld van de diepzee, zelfs in de vlakke oceanen, zo rijk leven is hoe we het ons echt nauwelijks.
 De fantasie van de natuur kent geen grenzen, helemaal van de menselijke verbeelding.
 Tot vandaag de dagen van vandaag.
 En mijn liefde voor de oceanen met dezelfde intensituaties als eh en iets.
 Toen ik volwassenen een beroep eruit te kiezen was het films.
-Dit leek de beste manier om mijn inere drang, verhalen te creëren met mijn bruikbare, om beelden te verenigvuldigen.
+Dit leek de beste manier om mijn inere drang, verhalen te creï¿½ren met mijn bruikbare, om beelden te verenigvuldigen.
 Als kind tekende ik stripiano stripbutenstrips en zo.
 Dus films waren films, beelden en verhalen samen met elkaar in de buurt van de kwestie.
 Natuurlijk waren de verhalen die ik me uit het science fictiongebied, "Terminator", "Aliens" en Abyss.
@@ -1034,7 +1034,7 @@ En dat vond ik ongelofelijk.
 En ik dacht: "Wauw, dat moet noodzakelijk de filmkunst."
 Dus we gingen in "Terminator 2," mijn naast de meest uit.
 Samen met ILM-C-operatie-uitstoot de kerel-in-metaal. De succesvol van hoe dit effect de pecteur.
-Het werkte dat we iets magisch gecreëerd.
+Het werkte dat we iets magisch gecreï¿½erd.
 De effecten in het publiek was deze.
 We hebben al een beetje meer geld gespeeld.
 Van deze beide ervaringen van deze twee ervaringen, was een heel nieuwe wereld bereikt, een nieuwe wereld van creativiteitskwestie van de creativiteitskappen van de vormgeving.
@@ -1050,17 +1050,17 @@ Het werd een liefdesfilm epische exponens, een gepassioneerde film.
 Maar ik wilde echte wrak van de Titanic op de echte wrak van de Titanic bestuur.
 Ik maakte de film.
 Dit is de waarheid. Het studio wist het niet.
-Ik zei: "We hebben ze geïnteresseerd in de wrak.
-We gaan het in de economieën van het film laten zien.
+Ik zei: "We hebben ze geï¿½nteresseerd in de wrak.
+We gaan het in de economieï¿½n van het film laten zien.
 Dat is ongelofelijk belangrijk. Het is een goede opkomst van de marketing."
 En ik hou van een expeditie te financiering te financieren.
 Klingt kiezen, maar dat is het opnieuw verbeelding een realiteit, dat de eigen verbeelding een realiteit.
-We creëerden dat we zes maanden een realitans in de Russische duikboot waar ik me in een Russische duikboot in de Russische duikboot van de Noord-Atlantische en me de echte Titanic door een bulloog bekeek. Het was geen HD, dat was echt.
+We creï¿½erden dat we zes maanden een realitans in de Russische duikboot waar ik me in een Russische duikboot in de Russische duikboot van de Noord-Atlantische en me de echte Titanic door een bulloog bekeek. Het was geen HD, dat was echt.
 Dus, dat heeft me echt omgaan.
 De voorbereiding waren enorm enorm. We moesten camera's en zwarte en de mogelijkheden.
-En ik vond hoe zeer deze diepzeepzee-economieën, een ruimtemissie.
+En ik vond hoe zeer deze diepzeepzee-economieï¿½n, een ruimtemissie.
 Ze waren ook hoogtechniek en gedurfde omgeving.
-Je stopt in deze kapsel, dan zweefsel je in die donkere omgeving, vijandige omgeving, waar geen hoop op reddden, als je het niet zelf opnieuw zulke soorten creëren.
+Je stopt in deze kapsel, dan zweefsel je in die donkere omgeving, vijandige omgeving, waar geen hoop op reddden, als je het niet zelf opnieuw zulke soorten creï¿½ren.
 En ik dacht: "Wow, dat is precies wat ik in een science fictionfilm.
 Dat is echt cool."
 Ik was regels geobsedeerd door de diepzee.
@@ -1070,7 +1070,7 @@ Want ik kon me een wezens voorstellen dat we een visuele effectief konden ontwer
 In sommige van de expedities heb ik wezen wezen in Therbbrood en soms dingen die ik nog nooit eerder gezien had, soms de dingen die ik nog nooit eerder gezien had en de wetenschap van het tijdperk van de wetenschap toen we ze zagen, nog geen woorden had gevonden.
 Dat heeft me goed gegooid, en ik wilde meer.
 En dus ontmoette ik een onweinig beslissing.
-Na het succes van "Titanic" zei ik: "Oké, ik wil mijn hoofdberoep als filmmakers in Hollywood op ijs en laat een tijdje van Volltijd-onderzoeker."
+Na het succes van "Titanic" zei ik: "Okï¿½, ik wil mijn hoofdberoep als filmmakers in Hollywood op ijs en laat een tijdje van Volltijd-onderzoeker."
 Dan begonnen we deze expedities te plannen.
 We gingen naar de Bismarck, en verkenden ze met robotvoertuigen.
 We kwamen naar het wrak van de Titanic terug naar het wrak van de Titani.
@@ -1091,16 +1091,16 @@ Dit zijn er weinig uitzonderlijk uit.
 Ze leven met chemosynthese.
 Ze bestaan niet in een zonlicht gebaseerde systeem zoals we dat doen.
 Je ziet dat dieren die direct naast een 500 graden Celsius, wolk wolk leven, en je kan je niet voorstellen dat ze er niet in staat zijn om te verminderen.
-Op dezelfde moment geïnteresseerd ben ik geïnteresseerd in de ruimtewetenschap, dat was weer de science fiction-invloed uit mijn jeugd.
+Op dezelfde moment geï¿½nteresseerd ben ik geï¿½nteresseerd in de ruimtewetenschap, dat was weer de science fiction-invloed uit mijn jeugd.
 Dus ik landde ik bij de mensen die zich in de ruimte om de ruimte om de ruimte en met de NASA te maken hebben en de NASA in NASA-splanden en de juiste ruimtevaardigheden. Ze gaan naar Rusland, doorlopen voor de missie van de missie het biomedische protocoll vervolgens de internationale ruimte en in de internationale ruimtestation en nemen onze 3D-carasystemen.
 Dat was fascinerend.
 Maar aan het eind dat ik de ruimte-wetenschappers met ons in de diepzee.
-Ik nam ze toegang tot de wereld: Astrobiologen, planeetaire wetenschappers, mensen die zich bezighouden van deze sociale extreme situaties geïnteresseerd, zodat ze zich omkijken, zodat ze naar de bronnen en instrumenten en enzovoort.
+Ik nam ze toegang tot de wereld: Astrobiologen, planeetaire wetenschappers, mensen die zich bezighouden van deze sociale extreme situaties geï¿½nteresseerd, zodat ze zich omkijken, zodat ze naar de bronnen en instrumenten en enzovoort.
 We maakten documentaire, maar eigenlijk wetenschap, maar eigenlijk wetenschap, precies wetenschap.
 Zo maakte de cirkel tussen mijn bestaan tussen het bestaan als science fictionFan, en de omgeving in de realiteit, en de realiteiten in de realiteit.
 In de loop van deze ontdekkingsreis heb ik veel geleerd.
 Ik leerde een hoop van wetenschap geleerd. Maar ik heb ook veel gemaakt.
-Nu denk je dat een regisseur moet ook echter economieën, een fskapittypes van een scheepskapitt-soorten evenwicht op een schepskapitaal.
+Nu denk je dat een regisseur moet ook echter economieï¿½n, een fskapittypes van een scheepskapitt-soorten evenwicht op een schepskapitaal.
 Ik begreep niet veel van deze expedities voordat ik deze expeditie aanrak.
 Want op een bepaald punt moest ik me zeggen: "Wat doe ik hier?
 Waarom doe ik data Wat komt eruit?"
@@ -1128,7 +1128,7 @@ Wat kruisen we uit al die lastigniveau?
 Welke lessen hebben we geleerd?
 Ik geloof dat de nieuwsgierigheid.
 Het is de meeste menselijke eigenschap.
-Onze verbeelding is een kracht die zelfs een realiteit kan creëren.
+Onze verbeelding is een kracht die zelfs een realiteit kan creï¿½ren.
 En de achting van je teams is belangrijker dan alle lorbeter wereld.
 Ik kom jonge filmmakers die zeggen: "Geef me een rat, hoe ik dat kan doen."
 En ik zeg: "Schrik niet zelf in.
@@ -1147,11 +1147,11 @@ Het heet van Pivot en wat ik met pivot kan maken is dat ik na een bepaalde doods
 En onmiddellijk zie ik een ander patroon.
 En dat is omdat de middeleven de mensen het meest actief zijn en het meest gebrek aan het meest geven.
 We hebben een stap verder dan buiten we de gegevens verder gegevens opnieuw.
-We zien dat cirkels de kankerverwekkende populaire plastig zijn, maar niet in de buurten evenwichten van de economieën.
+We zien dat cirkels de kankerverwekkende populaire plastig zijn, maar niet in de buurten evenwichten van de economieï¿½n.
 Wanneer we verder gaan en leeftijd, zullen we zeggen 40 jaar oud hebben we gezien dat ongelukkig de belangrijkste oorzaak is dat de mensen de zorgen dat mensen de zorgen voor de mensen zorgen dat de mensen de zorgen moeten maken.
 En wie nog verder onderzoek is dat dit speciaal in de woestijn.
 Je herkent dat het aanzien van informatie en gegevens in deze manier van zwemmen in een levende informatie.
-Wanneer we dit soort roedatgene economieën, dat is niet de inhoud van inhoud zelf?
+Wanneer we dit soort roedatgene economieï¿½n, dat is niet de inhoud van inhoud zelf?
 Wat we hier zijn de titel van iedereen individuele "sports Illustrated", die ooit gedrukt.
 Het is allemaal online. Het is allemaal online.
 Ze kruisen het graag naar mijn talk in je kamer testen.
@@ -1170,10 +1170,10 @@ Ik denk dat dat dat het nu een beetje verder uitvoering is met een beetje verbru
 Wat we hier gedaan hebben, is dat we elk Wikipediase, en ze op een kleine samenvatting verminderd.
 De samenvatting is een korte buitenlandse patroon en een symbool uit en een symbool dat ze komt.
 Ik laat alleen de top 500 van de populairste Wikipediaseiten.
-Maar zelfs in deze geïnteresseerd is dat we een hoop dingen doen.
+Maar zelfs in deze geï¿½nteresseerd is dat we een hoop dingen doen.
 Ondertussen krijgen we een indrukwekkende thema's die op het populair populair.
 Ik ga het thema 'overheid' van de regering'.
-Nu, nadat ik de regering van de regering van de Wikipediacategorieën die het meeste van Time Magazines Magazines 'mensen van het jaar.
+Nu, nadat ik de regering van de regering van de Wikipediacategorieï¿½n die het meeste van Time Magazines Magazines 'mensen van het jaar.
 Dit is echt belangrijk omdat dit een individuele Wikipediase.
 Dat is alleen te herkennen als je een stapje terug naar een stapje kijkt.
 Kijk naar een bepaald van deze samenvattingen kan ik dan in het thema Time Magazines 'mensen van het jaar' van het jaar" en allemaal samen zien.
@@ -1205,20 +1205,20 @@ Als we dat doen, dan wordt deze bron van de gegevenval, misschien een nieuwe bro
 In plaats van alleen maar in plaats van alleen maar in informatie van de informatie krijgen.
 En als we kennis krijgen we misschien zelfs wijsheden dat we misschien zelfs wijsheden eruit trekken.
 Ik bedankt.
-Iedereen praat van vandaag de data van de globale economieën.
+Iedereen praat van vandaag de data van de globale economieï¿½n.
 Ik heb een aantal mensen die buitenlandse patronen die met "Happiness" in de achterkant in de afgelopen publiek in de afgelopen publiek kwamen en ze naar beneden, en er waren er nog veel meer.
 Er is een enorme golf van het interesse van de interesse in de golf van het interessante glastigen.
 Er zijn veel globale soorten.
 Iedere mensen graag dat mensen gelukkig.
 Maar ondanks al deze vloed van werkten, zijn er verschillende cognitieve gevallen, die het zowel bijna bijna bijna bijna onmogelijkheden van de patronen te denken.
 Mijn talk vandaag zal voornaamste vormen van deze cognitieve vallen.
-Het geldt in de laële laënten van deze soorten evenwicht in de economieën die evenwicht evenwichten van de soorten evenwicht dat we evenwicht zijn als elk anderen.
+Het geldt in de laï¿½le laï¿½nten van deze soorten evenwicht in de economieï¿½n die evenwicht evenwichten van de soorten evenwicht dat we evenwicht zijn als elk anderen.
 De eerste gevallen is een verspreiding om complexiteiten te geven.
 Het blijkt dat het woord Glambitieuze mogelijkheden.
 Ik denk dat er een specifieke betekenis waarin we dat de populaire vormen van de eeuwen en dat is iets dat we kunnen opgeven, dat we worden gecompliceerde visuele soorten die de ingewikkelde visie van wat welzijn.
 De tweede valt is een verwarring van ervaring en gedis: het is de basis van de populaire leven.
 Dit zijn twee zeer verschillende concepten, en ze zijn beiden samen gegooiden in het verbeelding van de globale economie.
-De derde is de concentratie van concentratie-illusie en dat is de ongelofelijke dat we niet de concentraties, die welzijn beïnvloeden die welzijn beïnvloeden zonder zijn betekenis te vervormen.
+De derde is de concentratie van concentratie-illusie en dat is de ongelofelijke dat we niet de concentraties, die welzijn beï¿½nvloeden die welzijn beï¿½nvloeden zonder zijn betekenis te vervormen.
 Ik bedoel, dat is een echte cognitieve val.
 Er is geen manier om het goed te krijgen.
 Nou, dat ik graag met een voorbeeld van iemand die vragen van iemand een vraag-antwoord had na een van mijn lezing met een van mijn lezing die een verhaal vertellen.
@@ -1229,8 +1229,8 @@ Maar dat had het niet.
 De herinneringen van de herinneringen aan de ervaring.
 Hij had de ervaring gehad.
 Hij had 20 minuten gehad.
-Ze hebben geen plastic omdat hij met een herinnering was geïneerd, en de herinnering was alles wat hij had gekregen, en de herinnering was alles wat hij had gekregen.
-Wat dit echt vertelt is dat we echter ons en economieën, die mensen hebben die mensen in de zin van twee soorten van het zelf.
+Ze hebben geen plastic omdat hij met een herinnering was geï¿½neerd, en de herinnering was alles wat hij had gekregen, en de herinnering was alles wat hij had gekregen.
+Wat dit echt vertelt is dat we echter ons en economieï¿½n, die mensen hebben die mensen in de zin van twee soorten van het zelf.
 Er is een ervaring die in het heden waarin het heden van het heden van het verleden van het verleden is om het verleden van het verleden heeft.
 Het is het ervaren zelf, als de dokter de dokter -- je weet wel, als de dokter vraagt: "Zoals ik je hier aanvoelen?"
 En dan is er een herinnering van zelf, en het herinnerde zelf, dat het gemiddeld is dat het gemiddeld van onze levensvormen in de loopt, en het is datgene dat de dokter door de vraag te stellen: "Hoe heb je je de laatste tijdstippen?"
@@ -1238,31 +1238,31 @@ Of "Hoe was je reis naar Albanien?"
 Dit zijn twee zeer verschillende eenheden van eenheden die ervaring leeft, en het herinnerde zelf, en de beide te verwisselen is onderdeel van het gedeelte van het globale deel van het glastic uit de globaties.
 Nou, dat herinnert een verhalen van verhalen-soort.
 Dit is een fundamentele reactie op onze herinneringen op onze herinneringen -- het is dat het evenement.
-We creëren niet alleen verhalen als we ons verhalen met verhalen als we ons verhalen tot het creëren.
+We creï¿½ren niet alleen verhalen als we ons verhalen met verhalen als we ons verhalen tot het creï¿½ren.
 Ons gediscussie produceert ons verhalen dat we van onze ervaring van de patronen is een verhaal.
 Laat me een voorbeeld.
 Er is een oude studie.
-Dit zijn echte patiënten die zich onderwijs.
+Dit zijn echte patiï¿½nten die zich onderwijs.
 Ik ga niet naar details gaan. Het is vandaag niet meer pijnlijk, maar ze was pijnlijk, toen deze studie in de jaren '90.
 Ze werden gevraagd om alle 60 seconden te vertelen.
-Hier zijn twee patiënten.
+Hier zijn twee patiï¿½nten.
 Dit zijn hun optekeningen.
 En je wordt gevraagd: "Wie van beide heeft meer geleid?"
 Dat is een heel simpele vraag.
-Patiënt B duidelijk meer gelitden.
-Zijn darmspiegeling was lastigger, en elke minuut van pijn, de patiënt had patiënt B, en meer.
-Maar nu is er een andere vraag: "Hoe dachten deze patiënten?"
-Hier is een patiënt dat de patiënt is dat patiënt een veel slechtere herinnering had dan patiënt B.
-De verhalen van de Darmspiegelten waren verschillend, en omdat een zeer cruciaal deel van de geschiedenis is hoe ze eindigen of grotere in deze verhalen -- maar één van hen is dit duidelijk -- maar één van hen is dat je zo duidelijk als de andere.
+Patiï¿½nt B duidelijk meer gelitden.
+Zijn darmspiegeling was lastigger, en elke minuut van pijn, de patiï¿½nt had patiï¿½nt B, en meer.
+Maar nu is er een andere vraag: "Hoe dachten deze patiï¿½nten?"
+Hier is een patiï¿½nt dat de patiï¿½nt is dat patiï¿½nt een veel slechtere herinnering had dan patiï¿½nt B.
+De verhalen van de Darmspiegelten waren verschillend, en omdat een zeer cruciaal deel van de geschiedenis is hoe ze eindigen of grotere in deze verhalen -- maar ï¿½ï¿½n van hen is dit duidelijk -- maar ï¿½ï¿½n van hen is dat je zo duidelijk als de andere.
 En degenen die het is waar de pijn op het einde van de pijn op zijn hoofd van de pijn.
 Het is een slecht verhaal.
 Waar weten we data Omdat we deze mensen na hun darmspiegeling gevraagd hebben, en ook veel mensen in de populaire inzamelijk?"
 Ze was veel erger in de achterkant B in de herinnering.
 Dit is een directe conflict tussen de ervaring en herinneren zelf.
 Voor het ervaren zelf had een slechte tijd.
-Wat je met patiënt maken met patiënt met patiënt met patiënt uitgevonden en het is gemaakt, en het is gemaakt, dat het gemaakt door patiënt te verliezen door patiënt te verliezamelen.
-Dat zal de patiënt lijdt, maar slechts een beetje en veel minder dan voorspellen.
-Als je dat enkele minuten lang maak je je dat het ervaren van patiënt A slechter is en je hebt beïnvloeden dat het herinnert van patiënt veel beter is, want nu heb je patiënt veel beter dan je patiënt hebben gegeven.
+Wat je met patiï¿½nt maken met patiï¿½nt met patiï¿½nt met patiï¿½nt uitgevonden en het is gemaakt, en het is gemaakt, dat het gemaakt door patiï¿½nt te verliezen door patiï¿½nt te verliezamelen.
+Dat zal de patiï¿½nt lijdt, maar slechts een beetje en veel minder dan voorspellen.
+Als je dat enkele minuten lang maak je je dat het ervaren van patiï¿½nt A slechter is en je hebt beï¿½nvloeden dat het herinnert van patiï¿½nt veel beter is, want nu heb je patiï¿½nt veel beter dan je patiï¿½nt hebben gegeven.
 Waardoor tekent een verhaal?
 En dat geldt dat de verhalen die het gedoefeningen ons vertelt en dat het gedoemd de verhalen die we uitvinden.
 Waardoor een geschiedenis van een geschiedenis is uitgetekend momenteel en einden.
@@ -1277,24 +1277,24 @@ Wat betekent dat er in een leven ongeveer 600 miljoen.
 In een maand is er ongeveer 600.000.
 De meesten van hen achterlaten.
 De meesten van hen zullen volledig negeerd door herinneren zelf.
-En toch krijg je de indruk dat ze de economieën, dat wat de populatie van deze ogenblikken van de ervaring van de ervaring van de ervaring.
+En toch krijg je de indruk dat ze de economieï¿½n, dat wat de populatie van deze ogenblikken van de ervaring van de ervaring van de ervaring.
 Het is de beperkte hulpbronnen die we verbruiken weinig even in deze wereld.
 Zoals we ze verbruikbaar zijn, maar dat is niet de geschiedenis lijkt niet het verhaal dat het herinnerde zelf dat het herinnert dat het herinnerde zelf.
 Dus hebben we het herinneren van zelf, en dat ervaren het is een behoorlijk verschil.
-Het is de woestende economieën van de omgang met tijd.
+Het is de woestende economieï¿½n van de omgang met tijd.
 Vanaf de manier waarop je een vakantie hebt en de tweede week zo goed is als de eerste week zo goed is als de eerste week zo goed als de huisvesting van de inwoners.
-Het werkt dat dat de economieën in de buurt.
-Waarschijnlijk herinneren dat dat het herinnert van de economische carrières is dan de enige oorzaak dat er geen nieuwe herinneringen.
+Het werkt dat dat de economieï¿½n in de buurt.
+Waarschijnlijk herinneren dat dat het herinnert van de economische carriï¿½res is dan de enige oorzaak dat er geen nieuwe herinneringen.
 Ze hebben de geschiedenis niet gemaakt.
 Op deze manier is de kritische variable, die een herinnerde zelf onderscheidt van een ervaring zelf onderscheidt van een erlevende zelf.
 Tijd heeft heel weinig invloed op dit verhaal.
 Nou, het herinneren van het herinner en verhalen en verhalen tot verhalen tot verhalen tot verhalen.
-Het is eigenlijk dat het beslissingen op, omdat als je een patiënt hebt, want als je een patiënt hebt, de twee verschillende chirurgen van de twee verschillende chirurgen die de patiënt is die de herinnering heeft, de herinnering heeft, de herinnering heeft, de herinnering heeft, de chirurg, de uitwisseling heeft.
+Het is eigenlijk dat het beslissingen op, omdat als je een patiï¿½nt hebt, want als je een patiï¿½nt hebt, de twee verschillende chirurgen van de twee verschillende chirurgen die de patiï¿½nt is die de herinnering heeft, de herinnering heeft, de herinnering heeft, de herinnering heeft, de chirurg, de uitwisseling heeft.
 Dat heeft geen stem in deze keuze.
 Eigenlijk is dat we niet tussen ervaring.
 Wij denken dat we dat de toekomst van de herinneringen van ervaring denken we aan de toekomst denken aan onze toekomst denken aan onze toekomst niet als ervaring.
 Wij denken dat we de toekomst van de herinneringen.
-Waarschijnlijk kun je dit zien als een Tyrannei van het herinneren van het herinneren van zelf, en je krijgt dat het zelf herinneren van het gevoel van zelf denken als één dat dat dat dit ervaring is door ervaringen die dit ervaring niet nodig heeft. Ik heb de enige indruk dat als we datgene niet nodig heeft, dat als we dalen dat als we dalen dat als we datgend de oorspronkelijke discussie van het herinnert.
+Waarschijnlijk kun je dit zien als een Tyrannei van het herinneren van het herinneren van zelf, en je krijgt dat het zelf herinneren van het gevoel van zelf denken als ï¿½ï¿½n dat dat dat dit ervaring is door ervaringen die dit ervaring niet nodig heeft. Ik heb de enige indruk dat als we datgene niet nodig heeft, dat als we dalen dat als we dalen dat als we datgend de oorspronkelijke discussie van het herinnert.
 Dat is een beetje moeilijk te rechtvaardigen, denk ik.
 Ik bedoel, hoeveel we van onze herinnering?
 Dit is een van de lastic dat de dominantie van de dominantie van het herinneren.
@@ -1314,26 +1314,26 @@ Waarom we de vakantie die we uitzoeken is een probleem dat we er een probleem is
 Nou, de twee soorten van het zelf.
 Er zijn twee concepten van de soorten van de globale soorten die we kwesties van een cruciale kwestie.
 Ze kruispunten vragen: Hoe gelukkig is dat het ervaren zelf?
-En dan is dat de economieën, hoe gelukkige momenten in het levende levende zelf?
+En dan is dat de economieï¿½n, hoe gelukkige momenten in het levende levende zelf?
 En ze zijn allemaal -- Gligh-ogenblike is een behoorlijk ingewikkelde process.
 Welk zijn de emoties die gemeten worden kruiden?
-We zijn nu een behoorlijk goede ideeën om een behoorlijk goede idee te krijgen van de soorten van de soorten evenwicht bij de tijd.
+We zijn nu een behoorlijk goede ideeï¿½n om een behoorlijk goede idee te krijgen van de soorten van de soorten evenwicht bij de tijd.
 Wanneer je de glastic herinner je dat het een ander ding.
 Dat is niet hoe gelukkig een persoon leeft.
 Het is hoe tevreden of het vrede of het vrede persoon is, als deze persoon hun leven nadenkt.
 Zeer verschillende termijn.
 Iedereen die deze term niet onderscheid zal de verkenning van de globale soorten van de glastic uit de populaties van de soorten van de soorten van de soorten van de globale evolutie van de soorten van de soort.
-Het onderscheid tussen de glastic en de geluid van het ervaren de toevredenheid van het herinneren van de afgelopen jaren, en nu krijg je die twee separadigmma's meten. De gallup Organizatie heeft een wereldwijde penquête, waarbij ze meer dan een half miljoen mensen vragen die meer dan een half miljoen mensen vragen worden gemaakt.
+Het onderscheid tussen de glastic en de geluid van het ervaren de toevredenheid van het herinneren van de afgelopen jaren, en nu krijg je die twee separadigmma's meten. De gallup Organizatie heeft een wereldwijde penquï¿½te, waarbij ze meer dan een half miljoen mensen vragen die meer dan een half miljoen mensen vragen worden gemaakt.
 En er waren andere regels in de richting.
 In de afgelopen jaren hebben we de afgelopen jaren van de twee soorten van de soorten van het zelf.
 En de voornaamste mensen die we geleerd hebben is dat ze echt verschillend.
 Ze kiezen hoe gelukkig mensen weten hoe tevreden met zijn leven, en dat leert ze echt niet zoveel populair zijn leven en zo blijkt dat het leven en vergeten.
 Alleen een idee van de correlatie van correlatie is die correlatie is de correlatieuze in de buurt.
 Wat dat betekent is dat als je iemand neemt waarop je wisselen je zou zeggen dat zijn vader, zijn vader een twee-meter-man, zoals veel mensen die echter economie-mannen?
-Nou, je waarop je zulke economieën, maar er zijn veel onzekerheid.
+Nou, je waarop je zulke economieï¿½n, maar er zijn veel onzekerheid.
 Je hebt zoveel onzekerheid. Als ik jullie zeg dat iemand zijn leven als acht op een schaal van tien geordend, heeft je veel onzekerheid onzekerheid onzekerheid, zoals gelukkig is met zijn ervaring.
 De correlatie.
-We weten iets dat de geluk van de prachtige evenwicht van de golven van de golven van de economieën.
+We weten iets dat de geluk van de prachtige evenwicht van de golven van de golven van de economieï¿½n.
 We weten dat geld erg belangrijk is, doelen zijn erg belangrijk.
 We weten dat Gelukkig belangrijk is om te zijn gelukkig te zijn met mensen die we maken, om tijd te besteden met mensen die we maken, om tijd te besteden met mensen.
 Er zijn andere vergunningen maar dat is dominant.
@@ -1341,25 +1341,25 @@ Dus als je het glastic van de twee soorten van het zelf maximaliseert het eind h
 De conclusie van wat ik hier zei, is dat we ons geluid is dat we echt niet echt moeten voorstellen als een vervangstaan, als een vervanging van welzijn.
 Het is een volledig andere term.
 Nou, een andere reden dat we niet zo goed is dat we niet uiteindelijk problemen dat we dat niet op dezelfde manier waarop het leven is dat we niet op dezelfde manier waarop we het leven hebben en als we nu weinig leven.
-Dus als je de eenvoudige vraag stellen, hoe gelukkig mensen in Californië zijn niet de correcte antwoorden.
-Als je deze vraag stelt dat mensen in Californië in Californië in Californië.
-Wat er gebeurt is dat als je het leven in Californië, denk je aan het verschil tussen Californië en andere plaatsen we zeggen dat het verschil tussen Californië en andere plaatsen we zeggen dat het klimaat.
+Dus als je de eenvoudige vraag stellen, hoe gelukkig mensen in Californiï¿½ zijn niet de correcte antwoorden.
+Als je deze vraag stelt dat mensen in Californiï¿½ in Californiï¿½ in Californiï¿½.
+Wat er gebeurt is dat als je het leven in Californiï¿½, denk je aan het verschil tussen Californiï¿½ en andere plaatsen we zeggen dat het verschil tussen Californiï¿½ en andere plaatsen we zeggen dat het klimaat.
 Het blijkt dat klimaat niet erg belangrijk vinden dat klimaat, en het is niet eens heel belangrijk vinden dat het echt belangrijk is in de buurt van de mensen die even even beslissen, zoals gelukkig mensen zijn.
-Nu, omdat dat nadenklike zelf verantwoordelijk is verantwoordelijkheden -- sommige mensen kiezen, sommige mensen keuzes aan het eind van Californië.
-Het is interessant om te zeggen wat er gebeurt met mensen die naar Californië trekken naar Californië.
+Nu, omdat dat nadenklike zelf verantwoordelijk is verantwoordelijkheden -- sommige mensen kiezen, sommige mensen keuzes aan het eind van Californiï¿½.
+Het is interessant om te zeggen wat er gebeurt met mensen die naar Californiï¿½ trekken naar Californiï¿½.
 Jullie ervaring ervaring zal niet gelukkiger worden.
 We weten dit.
-Maar één ding zal er gebeuren ze dat ze glorieuze zijn, want als ze de echte eeuwen zullen ze zich herinnert hoe vreselijk het weer in Ohio.
+Maar ï¿½ï¿½n ding zal er gebeuren ze dat ze glorieuze zijn, want als ze de echte eeuwen zullen ze zich herinnert hoe vreselijk het weer in Ohio.
 En ze worden uitgeavanceerde dat ze de juiste beslissing.
 Het is erg moeilijk om duidelijker te denken, en ik hoop dat ik jullie een idee van hoe moeilijk het is.
 Bedankt.
 Chris Anderson: Dankjewel. Ik heb een vraag aan jullie.
 Hartelijk dank.
-Nu, toen we een paar weken geleden telefoonvermijdelijk dat het een interessant resultaat was dat er een heel interessant resultaat was dat uit deze gallup enquête.
+Nu, toen we een paar weken geleden telefoonvermijdelijk dat het een interessant resultaat was dat er een heel interessant resultaat was dat uit deze gallup enquï¿½te.
 Is dat je iets waar je ons delen, omdat je nu nu een paar minuten omdat je nu een paar minuten evenwicht hebt?
-Daniel Kahneman: Zeker. Ik denk dat het meest interessante resultaten dat we in de Gallup enquête die we absoluut niet te vinden.
+Daniel Kahneman: Zeker. Ik denk dat het meest interessante resultaten dat we in de Gallup enquï¿½te die we absoluut niet te vinden.
 We vonden dit in het inzicht op het glastic van het glastige zelf.
-Wanneer we kijken, hoe de kwaliteit van de inkomen met de inkomen variëren.
+Wanneer we kijken, hoe de kwaliteit van de inkomen met de inkomen variï¿½ren.
 Het blijkt dat onder een inkomen van 60.000 dollar per jaar, dat is een zeer groot eeuwige Amerikanen, en dat is een zeer groot evenwicht van Amerikanen, maar het is een enorme sociale economie-e-professionele inkomen van 600.000 dollar per jaarlijks van 600.000 dollar per jaar.
 CA: 60.000. 60.000. 60.000 dollar per jaar per jaar, en ze worden meer ongelofelijk, en ze worden meer ongelofelijker zijn.
 We krijgen een absoluut vlak lijn.
@@ -1368,15 +1368,15 @@ Wat gebeurt er duidelijk, is dat geld geen ervaring is dat geld geen ervaring.
 Het andere zelf herinner het zelf herinneren zelf, krijg je een ander verhaal.
 Hoe meer geld je verdient meer geld bent te verdienen bent.
 Dat is niet de emoties.
-CA: Maar Danny, in het hele Amerikaanse bevolking gaat over leven, vrijheid, het streven naar globale economieën.
+CA: Maar Danny, in het hele Amerikaanse bevolking gaat over leven, vrijheid, het streven naar globale economieï¿½n.
 Als mensen die bevalling nemen wisselen nemen het op de kop te zetten alles wat we geloven alles wat we geloven in belastingpolitiek en zo verder.
 Is er een kans dat politici het land genereert dat het land genereert dat het land genereert dat het land een bevloeiende politiek uitvoeren?
-DK: Weet je, ik denk dat het erkenning de rol van de rol van de gaten van de economieën.
+DK: Weet je, ik denk dat het erkenning de rol van de rol van de gaten van de economieï¿½n.
 De erkenning zal langzaam zijn in de Verenigde Staten, geen kwestie, maar in de Verenigde Staten.
 Mensen zijn erkennen dat ze aan de glastic moeten denken.
 Het zal een tijdschrift duren en de mensen zullen discussie of ze ervaring proberen te bestuderen of ze levensbeoordelaars willen bestuderen, dus dat we deze discussie.
 Zoals je glastijl kan verstoppenwijken, zoals je denkt dat je denkt en of je denkt aan het zelf denken.
-Het zal politiek beïnvloeden, denk ik, in de komende jaren.
+Het zal politiek beï¿½nvloeden, denk ik, in de komende jaren.
 In de Verenigde Staten, is je je de ervaring van de populaire glagen van het publiek van de petitie van de bevolking in de Verenigde Staten.
 Ik denk dat dat dat in de nationale statistiek.
 CA: Nou, dit onderwerp, dit thema wordt, of zou het meest interessante politieke debatteren de meest interessante politieke discussie-jaren.
@@ -1391,12 +1391,12 @@ De dingen worden nu evenwicht op deze manier waarop ze hun vragen niet kan uitho
 Het is dat het even van honger. Het blijkt met onzekerheid.
 Dus, zal een klimaatkwesties van een verschil maken.
 De energieprijs is de energieprijs in de prijs die zeer belangrijk.
-In feite is dat als je slechts één ding van de prijs verminderen de prijs van de armoedevermindering van de armoedevermindering van de meest effectief.
+In feite is dat als je slechts ï¿½ï¿½n ding van de prijs verminderen de prijs van de armoedevermindering van de armoedevermindering van de meest effectief.
 De energieprijs is dat de energieprijs de tijd.
 In feite is de vooruitgang van de vooruitgangspunt.
-De koolerevolutie heeft de industriële revolutie en zelfs in de 20ste eeuw, en zelfs in de elektriciteit, en daarom hebben we de prijs echter uitvoeren, klimaataanlagen, klimaataanlagen, klimaataanlagen, en zoveel dingen doen.
+De koolerevolutie heeft de industriï¿½le revolutie en zelfs in de 20ste eeuw, en zelfs in de elektriciteit, en daarom hebben we de prijs echter uitvoeren, klimaataanlagen, klimaataanlagen, klimaataanlagen, en zoveel dingen doen.
 We zijn dus in een prachtige situatie met stroom in de wereld.
-Maar, als we de prijs verminderen -- laten we ons de prijs halveren -- we maken de prijs een nieuwe barrières en deze barrières met CO2 samen met CO2 samen met CO2 samen.
+Maar, als we de prijs verminderen -- laten we ons de prijs halveren -- we maken de prijs een nieuwe barriï¿½res en deze barriï¿½res met CO2 samen met CO2 samen met CO2 samen.
 CO2 verwoestijnt de planeet en de vergelijking van CO2 is eigenlijk duidelijk.
 Ze zoeken het uitgestoffen CO2, welke CO2, welk de temperature soorten evenwicht en deze temperature eeuwige gevolgen.
 De indirecten op het weer en misschien erger, de indirecte gevolgen dat de indirecte systemen dat de populaire patronen van het systeem van de patroon van systemen.
@@ -1411,11 +1411,11 @@ Het is heel anders om te zeggen, we hebben een 3,5 meter hoge LKW, die onder een
 Dit moet naar beneden.
 Nou, we hebben een koolstofdioxide dioxide uitstoot van 26 miljard toonnen.
 Elk Amerikanen ongeveer 20 ton.
-Mensen uit arme lastigen, minder dan één.
+Mensen uit arme lastigen, minder dan ï¿½ï¿½n.
 In de gemiddeld zijn het ongeveer vijf tonnen vijf tonnen op de planeet.
-Op een of andere manier hebben we geëvolueerden die dat op nul.
+Op een of andere manier hebben we geï¿½volueerden die dat op nul.
 Het is een beetje constant gegaan.
-Slechts verschillende soorten evenwichten in de gemeenschappen van deze economieën hebben geëvolueerd, en we multivering tot verminderen tot een vermindering op nul.
+Slechts verschillende soorten evenwichten in de gemeenschappen van deze economieï¿½n hebben geï¿½volueerd, en we multivering tot verminderen tot een vermindering op nul.
 Deze vergelijking heeft vier factoren.
 Een beetje multiplicatie.
 Je hebt dit ding links -- CO2 -- CO2 die je kant wilt brengen en dat wordt door het aantal mensen van het aantal mensen van de diarree, die elke mens in de gemiddelde energie-gemiddelde energie-e-energie en de CO2, het gemiddelde energie van het gemiddelde energiebeerd.
@@ -1471,7 +1471,7 @@ Misschien misschien een moderente bijdragen en als ze betere veroorloven dan ik 
 Laten we eerst het verbranden van fossiele brandstoffen, brandstoffen, verbrandstoffen of aardgas.
 Wat je daar moet doen, lijkt misschien eenvoudig, maar dat is het niet.
 Misschien dat de CO2, dat na het verbranden van het schornsteen komt, invloed door de druk van het publiek en hopen dat het daar blijft.
-Er zijn een aantal pilotprojecten die dat op een 60% niveau van 80% niveau, maar het is op 100 procent te krijgen tot 100 procent van de CO2 te creëren, is een grote uitdaging. Maar dat is een grote uitdaging.
+Er zijn een aantal pilotprojecten die dat op een 60% niveau van 80% niveau, maar het is op 100 procent te krijgen tot 100 procent van de CO2 te creï¿½ren, is een grote uitdaging. Maar dat is een grote uitdaging.
 Wie zal het zeker?
 Wie kan er iets dat lettertype miljarden keer dat er veel miljarden mensen die echter hebben dan elk soorten die je kernstige soorten die je kan voorstellen.
 Dat is een hoop volgen.
@@ -1485,9 +1485,9 @@ Omdat hij niet erg groot eeuwig is dat er een hoop bedenken.
 Mensen zijn er goed in de kaart van 18400.10.10.00.000 tot 10.0000.10.000.000.
 Dus drie zeer moeilijke problemen die wellicht liggen en waaraan je daarom moet werken.
 De afgelopen drie van de lastic die ik bij elkaar.
-Het zijn de vernieuwbare energieën, zoals ze vaak genoemd.
+Het zijn de vernieuwbare energieï¿½n, zoals ze vaak genoemd.
 Zelfs het fantastisch is dat ze geen brandstof nodig hebben -- ze hebben een paar nachts.
-De energie is de energiedichten die deze technologieën creëren dan de krachtwerken.
+De energie is de energiedichten die deze technologieï¿½n creï¿½ren dan de krachtwerken.
 Dit zijn energie-achtige vierkante kilometers, duizend keer meer soorten dan een normale krachtwerk.
 Het is dat deze bronnen die bronnen.
 De zon schijnt niet de hele dag, ze lijkt ook niet elke dag en de wind van de wind niet stoppen.
@@ -1507,8 +1507,8 @@ Wat we nodig hebben, zijn veel bedrijven die hieraan werken. Honderden.
 In elk van deze soorten zijn we minstens 100 mensen.
 Veel zal je vertellen: ze zijn kruis! Dat is goed.
 Ik geloof dat hier in de TED-groep zijn er vele die er al aangepakt.
-Bill Gross heeft meerdere bedrijven, onder andere genaamd een e-technologieën.
-Vinod Khosla geïnvesteerd in het mooie bedrijven en interessante mogelijkheden hebben en interessante manieren om dit te ondersteunen.
+Bill Gross heeft meerdere bedrijven, onder andere genaamd een e-technologieï¿½n.
+Vinod Khosla geï¿½nvesteerd in het mooie bedrijven en interessante mogelijkheden hebben en interessante manieren om dit te ondersteunen.
 Nathan Myhrvold en ik financieren een bedrijf, misschien wel de nucleaire benadering die nucleaire aanpak.
 Er zijn enkele innovaties in de nucleair.
 De ontwikkeling heeft in deze industrie in de industrie van een tijdloop, dus het is een aantal goede concepten van een aantal goede concepten.
@@ -1542,13 +1542,13 @@ Dat is erg belangrijk.
 Dit zal een schuile element.
 Wanneer we de krustigheden in 2020 dingen die er uitzien?
 Het moet weer de twee elementen.
-We moeten de effectieve ectieve sociale sociale economieën gebruiken om reductie op weg te brengen.
+We moeten de effectieve ectieve sociale sociale economieï¿½n gebruiken om reductie op weg te brengen.
 Hoe minder we emiteren, hoe minder we emiteratuur, hoe minder we ook de temperatuur.
 Maar eigenlijk is deze noot de dingen die we ondernemingen die we niet volledig hebben met de groeiende evolutie-reducties, of zelfs iets minder belangrijk als de andere die de snelheid van de innovatie van de innovatie van de innovatie van de innovatie van de innovatie van de innovloed.
 We hebben deze diarrestieke soorten we met volgorde dat we de kwesties van de pilootprojecten en reguleren in pilotprojecten en regulatie-ingenieurs.
 Er zijn vele grotere bron van dit onderwerp.
 Het Al Gore boek "We hebben een keuze" en David McKay's Sustainable Energy Without Air."
-Ze gaan het echt door en creëren waarin dit breed kan worden omdat we nodig hebben, omdat we nodig hebben in de pagina.
+Ze gaan het echt door en creï¿½ren waarin dit breed kan worden omdat we nodig hebben, omdat we nodig hebben in de pagina.
 Er is een iniges dat moet samenkomen.
 Dit is een wens.
 Een zeer concrete wens dat we deze technologie uitvinden.
@@ -1560,7 +1560,7 @@ Waarschijnlijk is dat het evenemen?
 Wij hebben nu de vorm van de onderzoeksgeld.
 Wanneer liggen de locaties van Koppenhagen in de plaatsen zoals CO2 praten.
 Je moet deze innovatiestrategie bespreken en je waarop je zulke mensen lijken op te locatie-soorten die innovatieve benaderen die innovatieve aanpassen die innovatieve benadering van deze innovatieve aanpakken.
-We hebben marktaanvallen nodig, CO2 Steuern, Cape &amp; trade iets dat een prijs creëert.
+We hebben marktaanvallen nodig, CO2 Steuern, Cape &amp; trade iets dat een prijs creï¿½ert.
 We hebben de boodschap van het nieuws verspreiden.
 Wij hebben nu een rationele dialoog rationele en volledige soorten evenwicht in de regering van de regering van de regering van de regering van de regering van de regering van de regering van de regering van de regering.
 Het is een belangrijk wens, maar ik denk dat we dat we het publiek.
@@ -1589,7 +1589,7 @@ Dit is een variatie van een ding dat gemaakt is.
 Dit is een belangrijk stap voorkomt, maar het is als een snelle reactor en sommige lengte van de reactor en sommigen van deze snelle reactor en een snelle reactor.
 CA: In jouw idee en waarschijnlijkheid zoiets echt in het leven?
 BG: We hebben een van deze schaalbaarheid nodig, die zeer stroomgekeerde dingen die zeer plastig zijn, we hebben 20 jaar om de uitvinden 20 jaar te uitvinden en dan 20 jaar.
-Dit is de deadline die ons de milieumodellen die we in het milieumodellen die we hebben gehoorde van de economieën.
+Dit is de deadline die ons de milieumodellen die we in het milieumodellen die we hebben gehoorde van de economieï¿½n.
 TerraPowers, als alles goed lijken op een groot eeuw, en dat is een groot evenwicht houdt van de populaire woestijn.
 En gelukkig zijn er vandaag duidelijkheid van bedrijven, en we hebben honderden, degenen die werkt dat de piloten werken, de piloten van de piloten functioneert dat deze piloten werkt met de piloten van de piloten van de piloten werkt met de piloten van het piloten van de piloten van het pilootsten.
 En het is de besten als het meerdere maken, want dan is er een mengsel gebruiken.
@@ -1615,12 +1615,12 @@ BG: Nou, helaas de sceptici in zeer verschillende kamp.
 Diegenen die wetenschappelijke argumenten maken, zijn erg weinig.
 Zogen ze dat er negatieve effecten zijn die met de wolken te maken met de wolken te maken met de wolken?
 Er zijn heel weinig dingen die ze weinig kwesties in een miljoen discussies die een kans hebben in een miljoen.
-Het belangrijkste probleem is dat deze economieën, zoals AIDS.
+Het belangrijkste probleem is dat deze economieï¿½n, zoals AIDS.
 Je doet de fouten en je betaalt met de fouten van de soorten.
 En daarom is het idee dat als je alle mogelijke problemen heeft, in iets te investeren van de problemen heeft, dat de investeren dat de investering niet zo duidelijk is.
-In feite is het IPCC report niet noodzakelijk het ergste scenario en er zijn mensen in de rijke wereld die IPCC bekijken en zeggen: oké, dat is geen grotere kwestie, dat is geen groei.
+In feite is het IPCC report niet noodzakelijk het ergste scenario en er zijn mensen in de rijke wereld die IPCC bekijken en zeggen: okï¿½, dat is geen grotere kwestie, dat is geen groei.
 Het feit is dat deze onzekerheid ons zorgen.
-Maar mijn droom hier is: als je het concept kan maken, en tegelijkertijd het CO2 bezighoud: "Oké, het geïnteresseerd is dat het niet geïnteresseerd is dat het geen koolstap, maar ik ga het misschien accepteren omdat het goedkoper is dan de voormalige methode."
+Maar mijn droom hier is: als je het concept kan maken, en tegelijkertijd het CO2 bezighoud: "Okï¿½, het geï¿½nteresseerd is dat het niet geï¿½nteresseerd is dat het geen koolstap, maar ik ga het misschien accepteren omdat het goedkoper is dan de voormalige methode."
 CA: En dit is de reactie op de buurt van het borg argument, dat als je al die tijd en energie gebruikt om de koolstof, alle andere doelstellingen, de armoedevermindering van de armoedevermindering van malaria en de armoede-vermindering van malaria en zo verder.
 Er is een domme verspilling van hulpbronnen is geld om geld te investeren, waarop we doen dat er een betere dingen zijn die we doen in de buurtafels.
 BG: Nou, het feitelijk onderzoek naar de Verenigde Staten, de VS, 10 miljard per jaar meer uitgeven dan ze vandaag doen -- dat is niet zo dramatisch.
@@ -1642,7 +1642,7 @@ BG: Bedankt.
 Ik wil jullie even even een paar maanden geleden dat ik een paar maanden geleden in het schrijven van een artikel in Italian Wired.
 Ik schrijf mijn synonym-wrustigende wrustiging in het teksten van het teksten van het teksten van het tekst en me dat ik nooit in mijn leven, wat het woord "behulp van wat het woord "behulp van wat het woord "behulp van wat het woord "behulp van het woord "behulp van mijn leven.
 Ik lees jullie de bevolking.
-"Behindert," Adjectief: "verkochte potentime, nutteloos, nutteloos en verwonnen, verwonde, verwonde, verwonde, uitgegescheiden en verdwonde, gehoord, verspreidt, dan is dat het potentiële potentime, verspreidt, en verspreiding, verkocht en uitgezonden, verspreid, uitgezondheid, uitgezonden, uitgezonden, uitgezondheid, verwond.
+"Behindert," Adjectief: "verkochte potentime, nutteloos, nutteloos en verwonnen, verwonde, verwonde, verwonde, uitgegescheiden en verdwonde, gehoord, verspreidt, dan is dat het potentiï¿½le potentime, verspreidt, en verspreiding, verkocht en uitgezonden, verspreid, uitgezondheid, uitgezonden, uitgezonden, uitgezondheid, verwond.
 Antonyme: Gezondheid, sterk, sterk, krachtige, sterktekst
 Ik heb deze lijst met een vriend en moest ik een vriend en moest lachen, maar ik kwam er niet meer te praten, maar ik kwam niet meer te praten, en ik kon niet meer en moest openbaar verzamelen, en me verzamelen, en het verzamelden van dit emotionele schokkende woordvloed en de emotionele schok.
 Natuurlijk was dat een uitgestemd synonym-winkel.
@@ -1657,10 +1657,10 @@ Voorzaak is dat de laatste twee waarop de laatste twee waaruit van de Near Anton
 Maar het gaat niet alleen om de woestijn.
 Het gaat over wat we nu evenveel mensen denken dat we de mensen die we nu beter hebben met deze woesten.
 Het gaat over de waarden die in deze woorden stoppen en hoe we deze waarden.
-Onze taal beïnvloedt ons denken en hoe we de wereld en de mensen om ons heen.
+Onze taal beï¿½nvloedt ons denken en hoe we de wereld en de mensen om ons heen.
 Veel oudere oudere sociale sociale sociale sociale mensen die de Grieken en de prachtige mensen die de uitzichten van een vluchten, omdat dat wat je eruit kan zien is wat je luid kan uitprikkelen.
 Wat willen we eigenlijk soms de hand is een beperkte mensen of een krachtige mensen?
-Alleen algemeen als kind te bestuderen kwekkende mensen die de populaire condities van de soorten van de sociale economieën in de patronen.
+Alleen algemeen als kind te bestuderen kwekkende mensen die de populaire condities van de soorten van de sociale economieï¿½n in de patronen.
 Waarschijnlijk niet schepsels die je zulke soorten economie?
 Een mens die de echte eeuwen die me toename in het A.I.I. Dupont Instituut in Wilmington in Delaware.
 Het is de pizen-karakteristiek.
@@ -1672,7 +1672,7 @@ En ik heb deze bron meer gehad.
 Ik vervloed. Ik vervloed.
 Stel je voor dat ik dat ik in de lastic evenals kind met Dr. P.
 Op een dag heeft hij me gekeken bij een van mijn sociale sociale sociale kwestie en hij zei tegen mij: "Wow, Aimee, Aimee, jij bent zo'n sterke, krachtvol en jonge mijl, dat je ziet een van deze bootstijgende kwesties.
-En als je het creëert geef ik honderd dollar."
+En als je het creï¿½ert geef ik honderd dollar."
 Dat was natuurlijk slechts een eenvoudige truc van Dr. P., zodat ik niet wilde maken met de uitzichten die ik niet wilde maken met de uitzicht, dat er zo uitzonderlijke soorten in het tweede verpleegkundigen in het tweede vermogen van de vorm van de patroon.
 Ik vraag me af: hoeveel zijn visie van mij als een sterke, krachtige manieren waarop ik sterk me dat mijn zelfbeeld had gevormd, en ik me zo'n sterk gevormd door een van natuur, krachtige en atletische mens.
 Dit is slechts een voorbeeld van velen zoals volwassenen in machtsposities de verbeelding van een kind verbeelding.
@@ -1704,7 +1704,7 @@ De patronen kijken naar de patologie van de patologie en ons op alle gebieden va
 Het belangrijkste is dat het belangrijkste is dat er tussen de perceptie van de waarneming van onze onvermijdelijke uitvinding.
 We moeten deze uitdagende tijden niet afwaarden of verlichting te vermijden, we moeten niet vermijden, of moeten we ze onder de tapijt, maar het gaat om in de bodem te voorkomen, maar het gaat om in de bodem te herkennen.
 Het gaat me wellicht om te stellen dat we woestijn te maken dat we weinigen niet noodzakelijkheden om ze te kiezen om ze te kiezen om ze op te pakken, om ze te kiezen en misschien zelfs een strijd te gebruiken en misschien zelfs een strijd en misschien zelfs te dansen.
-Misschien creëren we het.
+Misschien creï¿½ren we het.
 In dit jaar vieren we de verjaardag van Charles Darwin en toen hij 150 jaar geleden de evolutie van evolutie geschreven heeft Darwin, in mijn ogen, in mijn ogen, op iets heel erg karakter.
 Ik denk dat dat het zo omschrijven, niet de meest intelligente van zijn soorten soort, maar ook niet de meest intelligente van zijn soort, maar het best de beste van zijn soort, maar de beste manier waarop het best de beste mensen kan aanpassen op de manier waarop het meest intelligentie kan aanpassen.
 De conflicten ontstaan creativiteit van creativiteit.
@@ -1716,7 +1716,7 @@ Wij hebben dat we dat nu iets onszelf.
 We hebben een nieuwe betekenis geven dat we een nieuwe betekenis geven dat de moeilijke tijdens de moderne tijd.
 Misschien krustigheden we wisseling van de populaire eeuwen.
 Widrieten staan die we nog niet hebben aangepast dat we nog niet aangepast.
-Ik geloof dat we de economieën, die we onszelf hebben is om te geloven dat we normaal moeten zijn dat we normaal moeten zijn.
+Ik geloof dat we de economieï¿½n, die we onszelf hebben is om te geloven dat we normaal moeten zijn dat we normaal moeten zijn.
 Hoeveel eerlijk -- wie is normaal?
 Er is geen normaal.
 Er zijn de eeuze. Het typische. Maar niet het normaal.
@@ -1748,20 +1748,20 @@ En ik heb mijn denkwijze me in de loop van de tijdloop van de leeftijd dat ik mi
 Ik wilde toen noodzakelijk.
 Als je me dat vandaag afvragen, ben ik niet zo zeker.
 Dat is gebeurd, WEIL ik iets met mijn benen met mijn benen niet van deze ervaring.
-Misschien kon deze verandering ook gebeuren omdat ik zoveel mensen die me hebben gemaakt, de mensen die me evenwicht hebben geëvolueerd om mensen in plaats van mensen te beïnvloeden.
-Kijk, het is maar één mensen die je gedemonstreert hoe je je je kruisen je bent plastic en je bent.
-Wanneer je het vermogen van je eigen huidige krustigheden van de menselijke geest is dat de menselijke geest is zo ontvangen als je dat creëert en in een kruidata in een beslissende moment, is dat je een zeer goede leraar.
+Misschien kon deze verandering ook gebeuren omdat ik zoveel mensen die me hebben gemaakt, de mensen die me evenwicht hebben geï¿½volueerd om mensen in plaats van mensen te beï¿½nvloeden.
+Kijk, het is maar ï¿½ï¿½n mensen die je gedemonstreert hoe je je je kruisen je bent plastic en je bent.
+Wanneer je het vermogen van je eigen huidige krustigheden van de menselijke geest is dat de menselijke geest is zo ontvangen als je dat creï¿½ert en in een kruidata in een beslissende moment, is dat je een zeer goede leraar.
 Ze brengen ze zichzelf dat ze zichzelf soorten.
 De eigenlijke betekenis van het woord 'educateducateduce'.
 Het betekent iets dat in een potentieel is om te kietelen.
 Nogmaals, welke mogelijkheden we de potentieel dat we nu afroepen?
-In de jaren '60 werd er een geval' in de jaren '60, dat werden uitgegroeid door de gymnasië.
+In de jaren '60 werd er een geval' in de jaren '60, dat werden uitgegroeid door de gymnasiï¿½.
 Ze noemen het 'Streaming Trials' in de Verenigde Staten.
 De lastiaars worden gedeeld.
-De lastic worden geëvolueerd in de lastic en krijgen die betere leerkrachten, krijgen die betere leerkrachten.
+De lastic worden geï¿½volueerd in de lastic en krijgen die betere leerkrachten, krijgen die betere leerkrachten.
 Ze hebben dan een bron van driemaanden die patronen met een 'uitd', "Zeer goed', "Zeer goed" dat ze zeer slimme wisseling dat ze heel slim zijn.
 Na deze drie maanden hebben ze echt inzichten geschreven.
-En dat is dat het een hart van het hart van de inzichten dat verzameling vertelt dat de inzichten van de economieën, maar uiteindelijk verspreidend.
+En dat is dat het een hart van het hart van de inzichten dat verzameling vertelt dat de inzichten van de economieï¿½n, maar uiteindelijk verspreidend.
 Zo was het na de drie maanden.
 Maar alleen die nog steeds in de school waren de school die de school hadden gezien van de school die de school hadden gehad.
 In deze studie was dat de leraren dat was dat de leraren niet gezien waren.
@@ -1771,9 +1771,9 @@ Zo maakten ze iets geloven en ze behandeld.
 De enige echte beperking is een gebroken geest een geest die gebroken werd, geen hoop meer.
 Hij vindt niets.
 Het ontbreekt onze wetenschappelijke kinderen die evenement, en onze aangeborenen fouten evenwicht van de immaginatie.
-Maar als we het creëren om de menselijke geest te houden van de menselijke geest te vinden en andere mensen om nieuwsgierig en andere mensen om nieuwsgierigheid en fantastisch te vinden, dan kunnen we onze cruciale economieën.
-Wanneer een geest van deze kwaliteitskwaliteitskwaliteit, hebben we een nieuwe werkelijkheid en nieuwe data creëren.
-Ik mooi met een gedicht die door een persoonlijke poëzie in de 14e eeuw genaamd Hafiz in de 14e eeuw.
+Maar als we het creï¿½ren om de menselijke geest te houden van de menselijke geest te vinden en andere mensen om nieuwsgierig en andere mensen om nieuwsgierigheid en fantastisch te vinden, dan kunnen we onze cruciale economieï¿½n.
+Wanneer een geest van deze kwaliteitskwaliteitskwaliteit, hebben we een nieuwe werkelijkheid en nieuwe data creï¿½ren.
+Ik mooi met een gedicht die door een persoonlijke poï¿½zie in de 14e eeuw genaamd Hafiz in de 14e eeuw.
 En het gedicht van het gedicht van "De God, die slechts vier woorden."
 "Elk kind kent God de naam, niet de God van de naam van de God van de verboden, maar de God van de naam kenmerkt en die mensen kennen die de naam kenmerk: Kom dans met me.
 Hartelijk dank.

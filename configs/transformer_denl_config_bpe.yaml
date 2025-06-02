@@ -1,4 +1,4 @@
-name: "transformer_enit_config"
+name: "transformer_denl_config"
 joeynmt_version: "2.0.0"
 
 
@@ -32,6 +32,7 @@ data:
             codes: "data/codes.bpe"
 
 testing:
+    use_cuda: False
     beam_size: 3
     alpha: 1.0
 
@@ -53,10 +54,10 @@ training:
     validation_freq: 500
     logging_freq: 100
     eval_metric: "bleu"
-    model_dir: "models/transformer_enit_bpe"
+    model_dir: "models/transformer_denl_bpe"
     overwrite: False
     shuffle: True
-    use_cuda: True
+    use_cuda: False
     max_output_length: 100
     print_valid_sents: [0, 1, 2, 3, 4]
     label_smoothing: 0.3
